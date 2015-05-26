@@ -1,4 +1,4 @@
-# Yuzhou City Life · City/Biz
+**Yuzhou City Life · City/Biz**
 
 > Source: [TF家族的微博](http://weibo.com/3499453682/zA2120NXt)
 
@@ -16,7 +16,7 @@
 > (Some photos were provided by interviewee.)
 
 "Do not mention the past, the life is full of trials and hardships."
-Recently on video sites like Youku and 56.com, "Dang Ai Yi Cheng Wangshi"(当爱已成往事, literally:"When Love Becomes the Past") covered by two boys were forwarded by many, the video got over 400,000 views, made it the most concerned covering during the commemoration of Leslie Cheung(张国荣).
+Recently on video sites like Youku and 56.com, "Dang Ai Yi Cheng Wangshi"(当爱已成往事, literally: "When Love Becomes the Past") covered by two boys were forwarded by many, the video got over 400,000 views, made it the most concerned covering during the commemoration of Leslie Cheung(张国荣).
 
 The two boys had been remembered by many people in days.
 They are 13-year-old WANG Jun-kai from the 8th Middle School and 12-year-old WANG Yuan from Dajiang Primary School of Chongqing.
@@ -118,7 +118,7 @@ Keep training, and waiting for a chance.
 "Our training includes vocal music, dance, instruments, performances, magic show, showmanship, creation skills, and so on.
 We have professional teachers to teach one on one, to shape an entertainer in all aspects."
 Mary said, after the appraisal by their professional evaluation team, outstanding trainees can debut from well-known entertainment agencies, others can get professional development in arts.
-Further more, they can help trainees to attend auditions from film and television companies, and to get the opportunity of performing in variety shows on TV of the partners.
+Furthermore, they can help trainees to attend auditions from film and television companies, and to get the opportunity of performing in variety shows on TV of the partners.
 
 Mary stated that the cultivation before debut is the most valued section.
 According to the trainee's personal situation, the time varies from several months to seven or eight years, mostly two to three years.
@@ -189,10 +189,10 @@ They said in a TV programme that in order to be adapted to stage, they had sang 
 To boys under fourteen, this was quite a challenging experience.
 
 In just over one year, on the number of comments on Sina Weibo, and the sign-in rate of personal Baidu Tieba, WANG Jun-kai ranks the top among child stars (on singing) aged below fourteen.
-His cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally:"One Likes Summer, One Likes Autumn") with WANG Yuan has been forwarded over 40,000 times on Sina Weibo, the video got 5 million hits(up to Sept. 2012).
+His cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Yuan has been forwarded over 40,000 times on Sina Weibo, the video got 5 million hits(up to Sept. 2012).
 This is the record of Internet coverings of child stars in China.
 
-In Sept. 2012, WANG Jun-kai's cover of "Wode Gesheng Li"(我的歌声里, literally:"In My Song") was recommended by Youku, 56.com, and Renren, and was forwarded by the official Weibo account of "The Voice of China"(中国好声音), the hottest talent show in China.
+In Sept. 2012, WANG Jun-kai's cover of "Wode Gesheng Li"(我的歌声里, literally: "In My Song") was recommended by Youku, 56.com, and Renren, and was forwarded by the official Weibo account of "The Voice of China"(中国好声音), the hottest talent show in China.
 The video was viewed over a million times in one week, and forwarded by many on Weibo.
 
 It's easy to tell that this two child stars were specially trained, unlike other grass-root peers popular on the Web, they were calm in front of camera.
@@ -299,7 +299,7 @@ The popular of grass-root entertainers on the Web in recent years are very good 
 ### Korean Entertainers Need Cosmetic Operations
 
 Cosmetic operation is usually a must before a Korean Entertainer debuts, a trainee may take such an operation.
-There is a clear procedure: everyone should take a "camera test" at regular time, be filmed from all angles, then evaluated by professionals.
+There is a clear procedure: everyone should take a "camera test" at regular time, be filmed from all angles, and then be evaluated by professionals.
 It makes judgements of whether he/she needs cosmetic operations.
 They will take operations following the evaluation, to make them perfect on camera.
 
@@ -318,7 +318,7 @@ XU said, there are three kinds of entertainers in Chongqing:
 A-list and B-list actors and actresses from Chongqing;
 entertainer groups like theatrical troupes and singing and dancing troupes;
 and a large number of common singers and entertainers underground.
-Compared to the mature platform of Taiwai or foreign countries, they don't have chances, they don't have a supporting platform.
+Compared to the mature platform of Taiwan or foreign countries, they don't have chances, they don't have a supporting platform.
 Training mode may provide a chance for them, but Japanese and Korean mode does the cultivating from young.
 
 ### Chongqing Market is to Be Developed
