@@ -170,7 +170,8 @@ MAO Jia said that even the agency was somewhat diffident under the goodwill,
 
 ## Welcome to the World of Risibility & Ridiculous & Solemnity
 
-### Jackson = CEO, Karry = Prince Charming, Roy = WANG Da-chui(王大锤) & Do Minjoon(도민준, 都敏俊) ?
+### Jackson = CEO, Karry = Prince Charming, Roy = WANG Da-chui & Do Minjoon ?
+*[WANG Da-chui(王大锤), Do Minjoon(도민준, 都敏俊)]*
 
 *[Q - S.M.E., K - WANG Jun-kai(Karry), R - WANG Yuan(Roy), J - YI Yang-qian-xi(Jackson)]*
 
@@ -358,8 +359,7 @@ Add some accessories not garish or adult, be pure and fresh.
 There's a great fashion market on 2000s, TFBOYS's popularity is high but the image is not fashionable, it's hard to be noticed by high-end brands.
 In fact, they can be in light-fashion(轻时尚), F.M.C.G. like H&M or Gap suits them well.
 
-## CULTIVATION
-*[Cultivation of Fans]*
+**CULTIVATION** *[of Fans]*
 ## Post-1990s "weird aunties" and Post-1980s "grannies"
 
 In 27th, Aug., at China National Convention Centre in Beijing, many fans in orange T-shirts were waiting outside.
@@ -430,9 +430,9 @@ Crazy "weird aunties".
 *[Image]*  
 Derivatives that are their source of income.
 
-## PROFIT
+**PROFIT**
 
-### A Photo Set Earned 3 Million Yuan
+## A Photo Set Earned 3 Million Yuan
 
 ZOU Xiao-ying knew TFBOYS last October, when it's planning the first E.P. with the release authorized to StarSing Disc(星外星唱片).
 ZOU said the sale went well, to the level as Hebe Tien(田馥甄) and Yoga Lin(林宥嘉).
