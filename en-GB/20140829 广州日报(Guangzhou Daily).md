@@ -4,6 +4,8 @@
 
 Dayoo News 2014-08-29 from Guangzhou Daily
 
+> Source: [广州日报](http://gzdaily.dayoo.com/html/2014-08/29/content_2735372.htm)
+
 *[Image]*  
 Journey of BBK e-tutor surveyors and TFBOYS fan meeting
 
