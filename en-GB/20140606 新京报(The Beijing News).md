@@ -36,8 +36,8 @@ How popular are TFBOYS?
 There are over 100 million results about "TFBOYS" on Baidu, compared to 75 million about "Kim Soo Hyun"(김수현, 金秀贤).
 When they recorded Happy Camp(快乐大本营, a top variety show in China) in May, the scalped tickets priced 6,000 yuan.
 Thousands of fans came, which staffs of Hunan TV described as "flooded in".
-Turn to their Weibo account, the weibo WANG Yuan sent on 1st Jun. was forwarded 85,000 times, commented nearly 80,000.
-The weibo sent by WANG Jun-kai on 10th May about his study caused 274,000 forwards and 280,000 comments, and the fans kept commenting tips and key points of the exam. Recently, they performed in a self-made drama on the web.
+Turn to their Weibo account, the post WANG Yuan wrote on 1st Jun. was reposted 85,000 times, commented nearly 80,000.
+The post written by WANG Jun-kai on 10th May about his study caused 274,000 reposts and 280,000 comments, and the fans kept commenting tips and key points of the exam. Recently, they performed in a self-made drama on the web.
 
 This is the time for post-2000s idols.
 We interviewed the agency "Time Fengjun" that created TFBOYS, to discover the secret of the iconic group.
@@ -45,7 +45,7 @@ At the same time, we interviewed the first teen idol group in mainland China, RT
 
 ## Who Are TFBOYS?
 
-### Debut: Cover Pop Songs, Forwarded By Mayday(五月天)
+### Debut: Cover Pop Songs, Reposted By Mayday(五月天)
 
 As a previously obscure talent agency, Time Fengjun was formerly a children's art training organisation, TF Family is their brand with many trainees in.
 It can be seen from the documents that TF Family keeps selecting outstanding boys aged 5 to 12, Time Fengjun will provide systematic art training for free, including vocal music, dance, performance, etc.
@@ -53,9 +53,9 @@ It can be seen from the documents that TF Family keeps selecting outstanding boy
 According to TFBOYS's manager Yuna, the agency started to shoot covers of pop songs from 2010, and to test the responses from the web.
 Though on small scale, they are accumulating the popularity.
 On the Children's Day of 2013, the agency produced the cover of "Yangcong"(洋葱, onion) based on the story of one of the trainees.
-It had been reported by TVs and newspapers, forwarded by Ashin(阿信) of Mayday, and got over 30 million hits.
+It had been reported by TVs and newspapers, reposted by Ashin(阿信) of Mayday, and got over 30 million hits.
 Senior fan Xiao-pi told us, "it is the peak of what a common cover can get."
-At about the same time, the cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天) had been forwarded by Christine Fan(范玮琪), JJ Lin(林俊杰), and WANG Yue-xin(王栎鑫).
+At about the same time, the cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天) had been reposted by Christine Fan(范玮琪), JJ Lin(林俊杰), and WANG Yue-xin(王栎鑫).
 
 Seeing the ascending trend, the agency adjusted their strategy, made a brand-new group TFBOYS with WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi of TF Family.
 Though it had stated at a programme of Chongqing TV that the trainees won't debut before being adults.

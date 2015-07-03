@@ -23,7 +23,7 @@ It showed the powerful influence in fans, while improvements are needed to get m
 They are the real youth, they are a limpid stream in show biz.
 In 2014, they experienced "phenomenal" popularity, bore "phenomenal" slander and praise.
 In the year, three boys aged under fifteen created many records -- 600,000 daily discussions on average, 1.5 million new followers (each person) per month -- surpassed A-list celebrities hugely.
-WANG Jun-kai's post about his preparation of entrance exams received 600,000 forwards;
+WANG Jun-kai's post about his preparation of entrance exams received 600,000 reposts;
 "Magic Castle" broke the MV viewing record kept by "Zui Xuan Minzu Feng"(最炫民族风, literally: "The Most Dazzling Folk Style") for many years in the first week
 [Untrue. The record was broken in the last days on the chart];
 the top variety show "Happy Camp"(快乐大本营) made their first show specially, while a scalped ticket priced 6,000 yuan at most...

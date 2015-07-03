@@ -279,8 +279,8 @@ N/A
 
 ## Which Is Your Type?
 
-It's wonderful to see their weibo.
-Their followers are greatly increasing, the comments and forwards are multiplying
+It's wonderful to see their Weibo posts.
+Their followers are greatly increasing, the comments and reposts are multiplying
 -- from 100+ in the beginning, to 10,000+ at present.
 Among these huge amount of comments, we can take a peek at the commons' viewpoints, the fans' ardent support, the aunties' soft advices, and strangers' puzzling.
 Which one is your type?
@@ -305,8 +305,8 @@ Which one is your type?
 3. Lao WANG, came here!!!
 4. Take a natural photo, OK? It's too official these days.
 5. A selfie, please!!!
-6. Tell me why don't you post a weibo yesterday?
-7. Post something QAQ Miss you very much for not seeing you these days QAQ Indeed QAQ Don't just watch weibos, post one!
+6. Tell me why didn't you post something yesterday?
+7. Post something QAQ Miss you very much for not seeing you these days QAQ Indeed QAQ Don't just watch posts, post one!
 8. It's time for an action, I guess!
 9. What's going on today!!!
 10. (´；ω；`)
@@ -392,7 +392,7 @@ Finally, I were among the countless fans surrounding the stage, looking up at th
 Sometimes I would selfishly hope you not to grow up.
 5. Among so many comments, can you see me? I was just an insignificant one among them, right?
 6. All posts watched again. Huge changes in these two years.
-7. Ai, being on the Hot Weibo Chart brought troubles, I saw some aunties are worrying.
+7. Ai, being on the "Hot Weibo Posts Chart" brought troubles, I saw some aunties are worrying.
 As grown-ups, there's someone who didn't know what they are saying, just keep scolding.
 Do you know them?
 Even though you knew a little, those were mostly rumours.
@@ -401,11 +401,11 @@ God's watching, take care.
 Your characters are much poorer than children's.
 8. TF's going to be popular, it seems that my words were always efficacious~
 9. 30,000+ comments, now know the aunties' power.
-10. Ah! Now every weibo will be on the Hot Weibo Chart, they are more famous, I'm sad!
+10. Ah! Now every post will be on the "Hot Weibo Posts Chart", they are more famous, I'm sad!
 
 **Type 6** -- Always thinking too much:
 
-1. I read many weibo about your school life, don't know if true or false, exaggerated or more serious.
+1. I read many posts about your school life, don't know if true or false, exaggerated or more serious.
 Whatever it was, I'm sorry for that, we are saying we love you, but can't protect you.
 2. Don't press them to post, they are very tired preparing for exams, shoot, training, and now attending ceremony.
 So don't press~ They will if they have time. Give them time to rest~ Be considerate if you love them~
@@ -443,8 +443,8 @@ So don't press~ They will if they have time. Give them time to rest~ Be consider
 4. I'll take the College Entrance Exam in 40+ days, may God bless you, and bless me.
 Wish I could study in CUC, though I didn't attend the Art Exams which rejected me from applying for SCM and art majors of CUC's, but I will make my efforts.
 My aim is Recording Arts, hope one day that I can record your songs. Fighting.
-5. If you forward or reply me, I will eat 100 flavoured eggs!
-6. If you post a weibo tonight, I will eat "Tianli 38 Sets"!
+5. If you repost or reply me, I will eat 100 flavoured eggs!
+6. If you post tonight, I will eat "Tianli 38 Sets"!
 7. I was making New Year visiting these two days, five dinners a day. How I wish to watch a film!
 8. So my acnes were caused by lacking of drinking water. I see. Thanks for sharing.
 9. I wanted to learn playing guitar, but fellows told me I wouldn't keep long nails, so I gave up.
@@ -515,7 +515,7 @@ Besides, we are nearly the same in age, it's happy to grow up at the same time.
 *P47*
 
 **[ID omitted]:**
-I'm attracted by "Yangcong" when a friend forwarded about 2 months ago, and became deeply in love with the three.
+I'm attracted by "Yangcong" when a friend reposted about 2 months ago, and became deeply in love with the three.
 (They sang "Yangcong" last year... How blocked am I...)
 
 **[ID omitted]:**
@@ -524,7 +524,7 @@ But time flies, in less than a year, they had a new companion, the life's happie
 Ten-year is long enough to change everything, ten-year is short that we are by your side!
 
 **[ID omitted]:**
-I knew them after a friend's forward.
+I knew them after a friend's repost.
 I followed them because of a sudden heartbeat when seeing WANG Jun-kai's profile.
 I like them because of their childish but vital songs.
 I support them because of WANG Jun-kai's words -- "I haven't thought about other roads."

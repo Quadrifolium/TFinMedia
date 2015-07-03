@@ -13,7 +13,7 @@
 # You Will Be Youths
 
 It seems as if the three boys came into the public just overnight.
-For those who are unfamiliar with them, they are confused about these boys who can be frequently seen from "hot weibo chart":
+For those who are unfamiliar with them, they are confused about these boys who can be frequently seen from "Hot Weibo Posts Chart":
 Who are they? Why are they popular? Where do they differs? -- Many questions pour out.
 For those who follow them from TF Family started out, they feel complicated:
 It's sad that the boys will be noticed and loved by more people, not their "own" anymore;

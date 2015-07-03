@@ -10,8 +10,8 @@ TFBOYS debuted in the summer of 2013, the name is the abbreviation of "The Fight
 The members are three boys in junior middle schools -- WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi.
 TFBOYS is totally "made in China", its agency sits in Chongqing.
 In early 2012, WANG Jun-kai started to release singing covers like "Qiu Niao"(囚鸟, literally: "A Bird In Cage") and "Wo Yao Kuaile"(我要快乐, literally: "I Want Happiness"), among which the cover of "Wode Gesheng Li"(我的歌声里, literally: "In My Song") was greatly reposted.
-Soon after, WANG Yuan joined TF Family, his cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Jun-kai was forwarded over 80,000 times including the original singer Christine Fan(范玮琪), got over 5 million hits.
-The cover of "Yangcong"(洋葱, onion) in June 2013 had been forwarded by Ashin(阿信) of Mayday, and got over 30 million hits, became the hottest topic on Weibo at the time.
+Soon after, WANG Yuan joined TF Family, his cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Jun-kai was reposted over 80,000 times including the original singer Christine Fan(范玮琪), got over 5 million hits.
+The cover of "Yangcong"(洋葱, onion) in June 2013 had been reposted by Ashin(阿信) of Mayday, and got over 30 million hits, became the hottest topic on Weibo at the time.
 
 **A Visit to Schools**
 
@@ -30,7 +30,7 @@ But in the fans', the cafés and tea shops they frequently visit are interesting
 When our reporter was getting out of the school, some fans were eagerly staring into the yard.
 Xiao Rou(pseudonym), who is about to graduate from senior middle school, liked WANG Jun-kai for years,
 "Karry(WANG Jun-kai) liked this beef noodle café before, but likes the nearby rice noodle café now."
-The keeper of the beef noodle café told us that he had posted a back view of WANG Jun-kai eating at his café on Weibo, which was forwarded over 3,000 times, many fans outside Chongqing came here after that.
+The keeper of the beef noodle café told us that he had posted a back view of WANG Jun-kai eating at his café on Weibo, which was reposted over 3,000 times, many fans outside Chongqing came here after that.
 
 To make WANG Jun-kai eat well, the fan even worked in the rice noodle café for free.
 "I serve guests or wash dishes, about one hour per day."
@@ -48,10 +48,10 @@ Xiao Rou never wash dishes at home, but does all this because of WANG Jun-kai.
 There are over 100 million results about "TFBOYS" on Baidu, compared to 74.4 million about Korean star "Kim Soo Hyun"(김수현, 金秀贤), 85.4 million about Korean group "BIGBANG".
 A music video of TFBOYS got over 20 million hits... Its popularity exceeds Korean stars.
 
-On 10th May, WANG Jun-kai posted a weibo about homework, with complaints about the stress before the exam.
-This weibo was forwarded 270,000 times, and got 280,000 comments.
+On 10th May, WANG Jun-kai posted about his homework on Weibo, with complaints about the stress before the exam.
+This post was reposted 270,000 times, and got 280,000 comments.
 It's not much compared to his over 2.26 million followers on Weibo.
-But to YAO Chen(姚晨), "the queen on Weibo" who has over 69.55 million followers, most of her weibo has just thousands of forwards and comments.
+But to YAO Chen(姚晨), "the queen on Weibo" who has over 69.55 million followers, most of her Weibo posts has just thousands of reposts and comments.
 
 These data surprised many people, these facts are stronger than any argument.
 
@@ -203,9 +203,9 @@ We all have usual minds on popularity.
 Many people are doubting that you are hyping through paid mercenaries.  
 **A:**
 We don't need to pay, the fans are our mercenaries, for free. Haha.
-I can guarantee that we did nothing on the followers and forwards of their Weibo accounts.
+I can guarantee that we did nothing on the followers and reposts of their Weibo accounts.
 We need analysis, adulterated data is of no use.
-WANG Jun-kai had expressed his opposition of zombie fans with a weibo saying,
+WANG Jun-kai had expressed his opposition of zombie fans with a post saying,
 "someone's taking zombies to follow me from last night. I've removed them. Would you please don't do that again?
 Or, I have to remove them tonight."
 This is not pretended, we don't hype up these matters.

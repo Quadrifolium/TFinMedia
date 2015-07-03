@@ -61,7 +61,7 @@ At the backstage, he was always playing his iPad, only after received a rigid fa
 
 Three boys aged under fifteen, debuted less than a year, created several impressive records
 -- the total number of fans exceeds ten million, and is increasing at the speed of 500,000 for each member per month;
-one weibo of WANG Jun-kai talking about his exam was forwarded 600,000 times;
+one Weibo post of WANG Jun-kai talking about his exam was reposted 600,000 times;
 the MV of "Magic Castle" broke the "complete play" record once kept by "Zui Xuan Minzu Feng"(最炫民族风, literally: "The Most Dazzling Folk Style") for many years;
 China's top variety show "Happy Camp"(快乐大本营) customised their first TV show, of which a sculpted ticket priced 6,000 yuan;
 the ticket of "Generation Show" even topped 30,000 yuan;
@@ -118,7 +118,7 @@ However, new media and we-media are invading print media, fans are able to get i
 Under such a thorough revolution in media did TFBOYS appeared as a semi-product, and it ignited the great passion of participation, cultivation, and sharing of joy.
 
 "Clovers have a slogan which says 'with ten-year's companion, for the glory of coronation', the fans may feel ennobled on their success, consider themselves to be the big push."
-MAO Jia explained, "Actually, the success of TFBOYS can be replicated, only had the sceptics been deigned to watch their weibo and videos can they know the reason of their popularity."
+MAO Jia explained, "Actually, the success of TFBOYS can be replicated, only had the sceptics been deigned to watch their Weibo posts and videos can they know the reason of their popularity."
 Indeed, the new generation have no sense of one who's far removed.
 To understand them, you should seize the core of fans economy -- fully affined involvement.
 
@@ -142,7 +142,7 @@ And it is still recruiting.
 **Q2:**
 How did TFBOYS become popular?  
 **A2:**
-New media & video sites(in 2011, the cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") had been forwarded by Christine Fan(范玮琪); in 2012, the cover of "Yangcong"(洋葱, onion) had been forwarded by Ashin(阿信) of Mayday and broadcast on CTi TV(中天電視, Chung T'ien Television))  
+New media & video sites(in 2011, the cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") had been reposted by Christine Fan(范玮琪); in 2012, the cover of "Yangcong"(洋葱, onion) had been reposted by Ashin(阿信) of Mayday and broadcast on CTi TV(中天電視, Chung T'ien Television))  
 → "danmaku"(弹幕, overlaid comments on a video, derived from Japanese "弾幕") video site(self-made dramas and shows went hot on bilibili.com, the shipping between WANG Jun-kai and WANG Yuan was favoured by some fans)  
 → off-line events(attended Yinyuetai's award ceremony, its popularity gained widespread concern)  
 → traditional media(been reported by portal sites and mainstream media, attended hot variety shows and talk shows)

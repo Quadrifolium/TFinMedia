@@ -89,14 +89,14 @@ The agency's smart at weighing the value of each trainee through those videos on
 From the second half of 2011, Time Fengjun regularly released cover videos of WANG Jun-kai and others.
 To the agency, these attempts brought in surprising results.
 In 2012, WANG Jun-kai and WANG Yuan's cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") caused the first extensive attention.
-This video had been forwarded over 80,000 times on Sina Weibo, and was viewed over 5 million times up to September 2012.
+This video had been reposted over 80,000 times on Sina Weibo, and was viewed over 5 million times up to September 2012.
 
 "Clover" Xiao-mian-li knew WANG Yuan and WANG Jun-kai at a dinner party, when her friend found the video for her.
 Her first impression is that the boys were quite plain at singing, but the looks still attracted her.
 Like many other "Clovers", Xiao-mian-li started paying attention to their Weibo accounts, and searching for their covers on video sites.
 
 Time Fengjun didn't disappoint these early supporters, more cover videos were published on the web.
-Thereafter, WANG Yuan and WANG Jun-kai covered songs like "Dang Ai Yi Cheng Wangshi"(当爱已成往事, literally: "When Love Becomes the Past") and "Yangcong"(洋葱, Onion). These songs were not only hot on Weibo and video sites, but also forwarded by the original singers.
+Thereafter, WANG Yuan and WANG Jun-kai covered songs like "Dang Ai Yi Cheng Wangshi"(当爱已成往事, literally: "When Love Becomes the Past") and "Yangcong"(洋葱, Onion). These songs were not only hot on Weibo and video sites, but also reposted by the original singers.
 The cover video of "Yangcong" was recommended by Ashin(阿信) from Taiwan, and broadcast on CTi TV(中天電視, Chung T'ien Television) as a hot topic.
 After the stir, the followers of WANG Jun-kai's Weibo account increased from 20,000 to 150,000 in one week.
 
@@ -258,7 +258,7 @@ Though the music and fan market in China formed later than Korea and Japan, the 
 Time Fengjun introduced the practice.
 From 2009, it got preliminary assessments of its trainees from netizens.
 Inside the agency, they had evaluated the popularity of all the trainees.
-The videos, art photos, make-up photos, and daily photos of the trainees were released on several websites, and the numbers of views, downloads, and forwards were recorded.
+The videos, art photos, make-up photos, and daily photos of the trainees were released on several websites, and the numbers of views, downloads, and reposts were recorded.
 The most important factor of WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi's being in TFBOYS is that they ranked the top at the evaluation.
 
 ② Rely on the Internet, not traditional TV stations
@@ -293,7 +293,7 @@ She took such a case as an example:
 When preparing for the entrance exam, WANG Jun-kai posted about his study and preparation of the exam on his Weibo account almost every day.
 "Time Fengjun and Yinyuetai showed every aspect of TFBOYS via the Internet, this is a difficult task for traditional fan meetings."
 
-During the preparation of the exam, WANG Jun-kai's weibo became a question bank, the frequently posted weibo and interaction with fans on study brought him the title of "xue ba"(学霸, one who's score ranks top in class or school).
+During the preparation of the exam, WANG Jun-kai's Weibo post became a question bank, the frequently posted one and the interaction with fans on study brought him the title of "xue ba"(学霸, one who's score ranks top in class or school).
 Compared with stars posting mainly about cuisine and cosmetics, this style made the promotion of TFBOYS much more different.
 
 ④ Steady core users with customised exclusive variety show
@@ -574,7 +574,7 @@ Hoyamatsu said, he asks the entertainers to use social networks like Line and Fa
 "Stars can't be looked up to, they should comply with fans' demands."
 
 In this respect, TFBOYS did well. At present, the number of fans they gathered is among the top of Chinese stars.
-In either Baidu Search Index and the number of Weibo forwards, TFBOYS ranks among the top of Chinese stars, QQ Groups related to it even exceeded super star Andy Lau(刘德华).
+In either Baidu Search Index and the number of Weibo reposts, TFBOYS ranks among the top of Chinese stars, QQ Groups related to it even exceeded super star Andy Lau(刘德华).
 
 ### Hidden Troubles Behind
 

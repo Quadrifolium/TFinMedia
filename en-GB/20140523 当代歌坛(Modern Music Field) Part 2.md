@@ -124,11 +124,11 @@ This imitation of Johnny's failed.
 In the early 2010, only OU-YANG Wang-ge(欧阳王戈), WANG Jun-kai, ZHANG Xiao(张啸), and WANG Yuan stayed, and joined TF Family.
 It was too long for the investors to get the profit after 20 years [which the agency originally expected], that TF Family was close to be dissolved.
 However, a talent show on the web turned things around -- WANG Jun-kai's cover of "Qiu Niao" raised people's concern, and so did WANG Yuan and WANG Jun-kai's cover of "Yige Xiang Xiatian, Yige Xiang Qiutian".
-Later on, TF Family's cover of "Yangcong"(洋葱, onion) had been forwarded by its original singer Ashin(阿信), and raised great concern.
+Later on, TF Family's cover of "Yangcong"(洋葱, onion) had been reposted by its original singer Ashin(阿信), and raised great concern.
 And YI Yang-qian-xi joined at that time.
 In the mid-2013, TF Family started the group TFBOYS with WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi.
 And they got more and more popular thanks to their own variety show on the Web.
-It can be recognised from the amount of their Weibo account's forwards and comments clearly that their popularity soared from that time.
+It can be recognised from the amount of their Weibo account's reposts and comments clearly that their popularity soared from that time.
 
 **Q:**
 They got popular through "shipping"[or "pairing", or "coupling", a fandom jargon]?  

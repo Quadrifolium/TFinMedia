@@ -44,7 +44,7 @@ After that time did I know how popular TFBOYS is."
 
 In fact, though young in age, plain in singing skill, neighbour-like in looks, the boys have already shaken adult idols in show biz.
 YANG Mi(杨冪) calls WANG Jun-kai "Dage"(大哥, literally: "big brother"), ZHANG Jie(张杰) showed his praise in public, ZHANG Zi-yi(章子怡) nominated them in the Ice Bucket Challenge.
-WANG Jun-kai's weibo on exam preparation was forwarded 600,000 times, which exceeds the forwards of most of Faye Wong(王菲)'s weibo.
+WANG Jun-kai's Weibo post on exam preparation was reposted 600,000 times, which exceeds the number of reposts of most of Faye Wong(王菲)'s posts.
 A sculpted ticket of the show they attended priced at 6,000 yuan, which was equivalent to Lee Minho(李敏镐, 이민호) or Kim Soohyun(金秀贤, 김수현).
 They were awarded the most popular group in mainland China in a competition with Phoenix Legend(凤凰传奇)[False.] and SJ-M of Korea.
 Their new song "Magic Castle"(魔法城堡) broke the hit record kept for several years by "Zui Xuan Minzu Feng"(最炫民族风, literally: "The Most Dazzling Folk Style") of Phoenix Legend,
@@ -236,7 +236,7 @@ In June, 2013, the agency made a cover of "Yangcong"(洋葱, Onion) with the the
 When making the MV, the boss LI Fei stayed at the shooting site, was much worried about whether it will be hot or not.
 He asked the director, "How do you feel about it?"
 HUANG said, "It's fantastic, I've never made such a work before. This may be the best."
-Finally, this covering video was forwarded by Ashine(阿信) of MayDay(五月天), got over 30 million hits.
+Finally, this covering video was reposted by Ashine(阿信) of MayDay(五月天), got over 30 million hits.
 This jittery and gingerly small agency tasted the sweet from the Web for the first time.
 
 In the cultivation game, this is the first success for trainees WANG Jun-kai and WANG Yuan.
@@ -354,9 +354,9 @@ They kept refreshing, replaying, marking favourite, commenting, and downloading,
 In other words, that TFBOYS's MV of "The Youth Manual"(青春修炼手册) get 50 million hits doesn't mean that 50 million people played it.
 
 Besides, LIN and his friends learned the method of promoting TFBOYS's news to the top of websites.
-Take Sina Weibo as an example, it is said that topics related to TFBOYS were limited on Hot Weibo Chart due to the excessive frequency. [Unconfirmed.]
-Later, fans found that if the forwards, comments, and likes of a weibo reaches a certain amount in a certain period of time, it can still be pushed to the Chart.
-And "if we want to push a weibo to the Chart, we don't use topics when forwarding."
+Take Sina Weibo as an example, it is said that topics related to TFBOYS were limited on "Hot Weibo Posts Chart" due to the excessive frequency. [Unconfirmed.]
+Later, fans found that if the reposts, comments, and likes of a post reaches a certain amount in a certain period of time, it can still be pushed to the Chart.
+And "if we want to push a post to the Chart, we don't use topics when reposting."
 
 LIN does so-called "purification"(means to eliminate negative information about TFBOYS) on Baidu every day.
 When typing "WANG Jun-kai" in the search box, there appears a menu showing entries about WANG Jun-kai, like "WANG Jun-kai's girlfriend" and "WANG Jun-kai scores high".
@@ -426,7 +426,7 @@ After some flights, she got YI Yang-qian-xi's signature twice, kept contact with
 On Weibo, LIN Zi is a "big shot" of the circle.
 A "big shot" is a special fan who has a large number of followers and are well-informed about idol.
 She had a particular Weibo account about TFBOYS, which has over 10,000 followers, is completely divided from her work.
-This 22-year-old girl with nearly ten years' experience as a fan of Korean stars, is skilful in photograph and Photoshop, good photos can usually be forwarded over 10,000 times.
+This 22-year-old girl with nearly ten years' experience as a fan of Korean stars, is skilful in photograph and Photoshop, good photos can usually be reposted over 10,000 times.
 In sites which forbid camera, she even tried hiding the camera in her skirt.
 
 Fans in LIN's friend circle are more or less the same: studying in college or just graduated, independent in economy, have plenty of time, have experience as fans.

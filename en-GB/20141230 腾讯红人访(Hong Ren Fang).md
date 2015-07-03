@@ -119,7 +119,7 @@ We are not aimed at making child stars, but super stars of the future." Yuna sai
 Hence, the agency decided to make them debut after grown-up, and waited for their growth very patiently.
 
 An accident disturbed this plan.
-In June 2013, The cover video of "Yangcong"(洋葱, Onion) by WANG Jun-kai, WANG Yuan, and drummer WANG Yi-feng(王译锋) was forwarded by Ashin(阿信) of MayDay.
+In June 2013, The cover video of "Yangcong"(洋葱, Onion) by WANG Jun-kai, WANG Yuan, and drummer WANG Yi-feng(王译锋) was reposted by Ashin(阿信) of MayDay.
 The MV got over 30 million hits in several days, was broadcast on CTi TV(中天電視, Chung T'ien Television) of Taiwan.
 This sudden great success prompted the boss of the agency to think "it is the time".
 
@@ -164,7 +164,7 @@ TFBOYS is the chosen one.
 
 In early photos, WANG Jun-kai and WANG Yuan didn't catch one's eyes, sometimes they sat at the end.
 During this time, TF Family released several songs, but didn't receive much response.
-Until early 2012, WANG Jun-kai's cover of "Qiu Niao"(囚鸟, literally: "A Bird In Cage") was pushed to the homepage of Youku.com, his cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Yuan had been forwarded by the original singer Christine Fan(范玮琪), did they received a period of concern.
+Until early 2012, WANG Jun-kai's cover of "Qiu Niao"(囚鸟, literally: "A Bird In Cage") was pushed to the homepage of Youku.com, his cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Yuan had been reposted by the original singer Christine Fan(范玮琪), did they received a period of concern.
 
 Time Fengjun started to bet on the two boys.
 Though shot all its videos with its own staff and a simple camera, this time it invited a famous MV director in Chongqing -- HUANG Tun(黄墩).
@@ -194,8 +194,8 @@ Besides for testing the responses on the web, these are the valuable materials a
 "Watching the idol's immature actions when he first comes, comparing to his shiny performances on the concert in his twenties, it greatly arouses the empathy of being growing together." SUN Xiang said.
 
 The agency registered Weibo accounts and Baidu Tieba accounts for all the trainees, let them share their lives with fans.
-The follower of Weibo accounts of WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi all exceeded one million, each weibo they post can easily get over 200,000 forwards and comments.
-The "participation" reached a top in 7th June, 2014, when WANG Jun-kai was preparing his entrance examination, the fans commented over 400,000 times on his weibo, helping to summarize the knowledge points.
+The follower of Weibo accounts of WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi all exceeded one million, each post they write can easily get over 200,000 reposts and comments.
+The "participation" reached a top in 7th June, 2014, when WANG Jun-kai was preparing his entrance examination, the fans commented over 400,000 times under his post, helping to summarize the knowledge points.
 Someone called it "a textbook in 140 characters".
 
 The boys didn't know they are in "The Truman Show".
@@ -283,7 +283,7 @@ Nowadays, there are 77,500 items about "TFBOYS" on Taobao, from the same pattern
 There's even a clover-shaped watch tagged "TFBOYS watch".
 In its official Taobao shop, over 30,000 sets of "2015 TFBOYS Official Fruit Theme Desk Calendar" were sold in 20 days at 49 yuan.
 
-ZHANG Zi-yi(章子怡) nominated them in the Ice Bucket Challenge, ZHANG Jie(张杰) showed his praise in public, YANG Mi told WANG Jun-kai to "be in love a bit later", CHEN He(陈赫) had posted a weibo scoffing himself -- "At the airport, there's TFBOYS, and a 'has-been' comedian."
+ZHANG Zi-yi(章子怡) nominated them in the Ice Bucket Challenge, ZHANG Jie(张杰) showed his praise in public, YANG Mi told WANG Jun-kai to "be in love a bit later", CHEN He(陈赫) had made a post scoffing himself -- "At the airport, there's TFBOYS, and a 'has-been' comedian."
 In the picture, he's drinking coffee against a dust bin, with a crowd of fans picking up TFBOYS in the back.
 
 Commenter Hen-hen-hong thought TFBOYS is a subtle entity to adult idols, they didn't know much about the "vanity fair".
@@ -296,7 +296,7 @@ Out of the same reason, she considered musician LIANG Huan(梁欢) excessive on 
 The meaning of their singing, music albums, variety shows, and performances is to provide a kind of product for purchasing, not to prove their strengths."
 
 The care for the boys from "mum fans" confused adults accustomed to "overdosed fans".
-Such as a fan Shang-tu-ling, she commented LIANG Huan's weibo, "after watching the last episode of 'TF Teens GO! 2', I come here to say something.
+Such as a fan Shang-tu-ling, she commented LIANG Huan's post, "after watching the last episode of 'TF Teens GO! 2', I come here to say something.
 Thank you, the sons' live show is much related to your effort.
 To us old aunties for music, it's the greatest happiness to see Kai-Yuan singing well.
 Thank you very much."

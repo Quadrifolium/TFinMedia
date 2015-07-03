@@ -16,7 +16,7 @@ That evening, TFBOYS received "Weibo Public Weal Annual Contribution Award", whi
 
 According to statistics, in the topic "Weibo Public Weal Carnival" launched by Sina Weibo in 2014, #TFBOYS益起来#(literally: "Public Weal With TFBOYS") reached 950 million views, 1,063,000 discussions, over 990 million times of interactions, ranked the first among all celebrities, and created the record of the most popular topic on public weal on Sina Weibo.
 The event of "Donate 1 Yuan For CLP Children" reached 1 billion views, raised over 400,000 yuan, broke the donation record of the year, and TFBOYS was honoured goodwill ambassadors by CPWF(China Population Welfare Foundation, 中国人口福利基金会).
-Their weibo attending #冰桶挑战#(Ice Bucket Challenge) has been forwarded over 100,000 times in a short time.
+Their Weibo post attending #冰桶挑战#(Ice Bucket Challenge) has been reposted over 100,000 times in a short time.
 Besides, they have recorded a promotion video of BFDP(Beijing Foundation for Disabled Persons, 北京市残疾人福利基金会), calling for the study of sign language and care about hearing impaired person.
 As promotion ambassadors of "Star Diamond Dream Realisation Plan"(星钻圆梦计划), they sent invitations to help 23 children in "X-change"(变形计) and many other children to realise their dreams.
 As ambassadors of "Mengxiang Xing Dadang"(梦想星搭档, literally: "Dream with Partners"), they started the relay "Singing Together, Awaken Ears" in the hope of making people concern about and help hearing impaired children.

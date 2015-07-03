@@ -16,7 +16,7 @@
 > (Some photos were provided by interviewee.)
 
 "Do not mention the past, the life is full of trials and hardships."
-Recently on video sites like Youku and 56.com, "Dang Ai Yi Cheng Wangshi"(当爱已成往事, literally: "When Love Becomes the Past") covered by two boys were forwarded by many, the video got over 400,000 views, made it the most concerned covering during the commemoration of Leslie Cheung(张国荣).
+Recently on video sites like Youku and 56.com, "Dang Ai Yi Cheng Wangshi"(当爱已成往事, literally: "When Love Becomes the Past") covered by two boys were reposted by many, the video got over 400,000 views, made it the most concerned covering during the commemoration of Leslie Cheung(张国荣).
 
 The two boys had been remembered by many people in days.
 They are 13-year-old WANG Jun-kai from the 8th Middle School and 12-year-old WANG Yuan from Dajiang Primary School of Chongqing.
@@ -34,7 +34,7 @@ Korean stars debut at 16, training earlier can make the basic solid, can be popu
 No matter they sang well or it's a hype, the MV was indeed popular.
 
 Netizens even called them "cutest zheng tai"(正太, means cute pre-adolescent boys, derived from Japanese word "shota", but differs from its English meanings).
-Their Weibo account have tens of thousands of followers, they had been invited by TV programmes, and some celebrities had forwarded their coverings.
+Their Weibo account have tens of thousands of followers, they had been invited by TV programmes, and some celebrities had reposted their coverings.
 They are like rising child stars.
 
 Actually, WANG Jun-kai and WANG Yuan's popular is not a coincidence.
@@ -189,11 +189,11 @@ They said in a TV programme that in order to be adapted to stage, they had sang 
 To boys under fourteen, this was quite a challenging experience.
 
 In just over one year, on the number of comments on Sina Weibo, and the sign-in rate of personal Baidu Tieba, WANG Jun-kai ranks the top among child stars (on singing) aged below fourteen.
-His cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Yuan has been forwarded over 40,000 times on Sina Weibo, the video got 5 million hits(up to Sept. 2012).
+His cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Yuan has been reposted over 40,000 times on Sina Weibo, the video got 5 million hits(up to Sept. 2012).
 This is the record of Internet coverings of child stars in China.
 
-In Sept. 2012, WANG Jun-kai's cover of "Wode Gesheng Li"(我的歌声里, literally: "In My Song") was recommended by Youku, 56.com, and Renren, and was forwarded by the official Weibo account of "The Voice of China"(中国好声音), the hottest talent show in China.
-The video was viewed over a million times in one week, and forwarded by many on Weibo.
+In Sept. 2012, WANG Jun-kai's cover of "Wode Gesheng Li"(我的歌声里, literally: "In My Song") was recommended by Youku, 56.com, and Renren, and was reposted by the official Weibo account of "The Voice of China"(中国好声音), the hottest talent show in China.
+The video was viewed over a million times in one week, and reposted by many on Weibo.
 
 It's easy to tell that this two child stars were specially trained, unlike other grass-root peers popular on the Web, they were calm in front of camera.
 Differing from other peers featured in cute, their performances were mostly moving love songs, their skills and actions were quite mature.

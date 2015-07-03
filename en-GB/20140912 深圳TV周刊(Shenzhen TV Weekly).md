@@ -7,7 +7,7 @@ Generation Show
 # TFBOYS:
 # CUTE HEALING BOYS CAME, MUM FANS ATTRACTED
 
-A weibo on exam has been forwarded 600,000 times, the fans' comments can be rated as "the bank of knowledge".  
+A Weibo post on exam has been reposted 600,000 times, the fans' comments can be rated as "the bank of knowledge".  
 An MV has been played over 40 million times, broke the record kept by the mostly well-known dance music "Zui Xuan Minzu Feng"(最炫民族风, literally: "The Most Dazzling Folk Style").  
 A sculpted ticket of the "Generation Show" episode they attended cost 10,000 yuan at most, while over 30 fans were swindled.  
 Wherever they go, "mum fans" would welcome them at the airport, even before dawn. Professional photographic equipment and supporting materials are their standard configuration.  
@@ -71,7 +71,7 @@ This is a promise of the fans -- witness the bright future of their idols with t
 
 **Vocal & emcee: WANG Yuan**  
 **Experiences:**
-Joined TF Family in early 2012, the cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Jun-kai was viewed over 5 million times and forwarded by the original singer Christine Fan(范玮琪).
+Joined TF Family in early 2012, the cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") with WANG Jun-kai was viewed over 5 million times and reposted by the original singer Christine Fan(范玮琪).
 The cover of "Dang Ai Yi Cheng Wangshi" and "Yangcong" with WANG Jun-kai raised great concern, with "Yangcong" been recommended by the composer Ashin(阿信) and broadcast on CTi TV(中天電視, Chung T'ien Television) of Taiwan.
 
 **Leader & charmer: WANG Jun-kai**  
@@ -79,7 +79,7 @@ The cover of "Dang Ai Yi Cheng Wangshi" and "Yangcong" with WANG Jun-kai raised 
 Joined TF Family in early 2011, released EP "Wo Bu Yao Gaibian"(我不要改变, literally: "I Don't Want to Change").
 Covered "Qiu Niao"(囚鸟, literally: "A Bird In Cage") and "Wo Yao Kuaile"(我要快乐, literally: "I Want Happiness") in early 2012,
 followed with "Zheyang Ai le"(这样爱了, literally: "This Is Your Love"), "Xiao Qingge"(小情歌, literally: "Simple Love Song"), "Ni Guang"(逆光, literally: "Glaring At the Light"), etc,
-among which "Wode Gesheng Li"(我的歌声里, literally: "In My Song") was greatly forwarded.
+among which "Wode Gesheng Li"(我的歌声里, literally: "In My Song") was greatly reposted.
 
 **"Xue ba" & dancer: YI Yang-qian-xi**  
 *["Xue ba", 学霸, one who's score ranks top in class or school]*  
@@ -196,7 +196,7 @@ Among them, TFBOYS's mums are a group of most worried mothers in the world.
 Besides interactions on the web, some fans would try everything to make close contact with idols
 -- sneaking into school to give them milk, prepaying in shops near school for WANG Yuan,
 eating noodles at a shop opposite to WANG Jun-kai's school,
-even a back photo of WANG Jun-kai taken by the shop owner can be forwarded over 3,000 times in one day.
+even a back photo of WANG Jun-kai taken by the shop owner can be reposted over 3,000 times in one day.
 
 Thus, no need to exclaim at the rapid replacement of Lee Minho(이민호, 李敏鎬) by Kim Soohyun(김수현, 金秀賢), because there's already another replacement.
 After seeing the data below, you will be clear that TFBOYS is the new star!

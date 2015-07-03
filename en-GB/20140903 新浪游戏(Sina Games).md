@@ -13,7 +13,7 @@ Recently, TFBOYS visited Sina.com, shared their journey as entertainers with fan
 ## Requite Clovers with Strengths
 
 **Q:**
-Your weibo were commented by tens of thousands of people, your arrival at an airport received many fans' welcome, what do you think about "being famous"?  
+Your Weibo posts were commented by tens of thousands of people, your arrival at an airport received many fans' welcome, what do you think about "being famous"?  
 **K:**
 I think being famous is that more and more people like us.
 And their like shows that more people accept our works.  

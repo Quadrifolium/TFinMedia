@@ -192,7 +192,7 @@ When WANG Yuan let him say hello, he was so shy that he covered his face and ben
 5. When TFBOYS just came to public's sight, Karry found many zombie accounts were following him, maybe it's the fans who brought them in.
 He removed them and posted about his attitude, and handed over the job to a staff.
 Now "No zombies" is still in his Weibo slogan.
-6. When asked a question in "Happy Camp", he answered in fans screaming, and supplemented, "I saw it in my weibo comments".
+6. When asked a question in "Happy Camp", he answered in fans screaming, and supplemented, "I saw it in my Weibo post comments".
 7. In self introduction, he couldn't clearly bear in mind the words, except "the most handsome".
 8. He put the responsibility in his heart.
 As a leader, he would encourage the others when they were nervous, he would support WANG Yuan when he's playing gags.
@@ -206,7 +206,7 @@ When asked who had ranked the top of the grade, YI Yang-qian-xi raised his hand.
 3. You will enjoy his dance very much.
 The actions are to the point, everything is perfect.
 People often question that why he can endure the exercise-like moves in their dances.
-4. One day on his way home, he found his fans shooting supporting photos, then he slipped to a corner behind them quietly to take photos and posted them in a weibo.
+4. One day on his way home, he found his fans shooting supporting photos, then he slipped to a corner behind them quietly to take photos and posted them on Weibo.
 It said, "I'm not in a hurry for my class, so I took photos with you, I'm not cheating."
 5. Brother complex.
 Through and through.

@@ -6,7 +6,7 @@
 
 *[Image 1]*  
 In 2014, when people were still doubting who is LU Han(鹿晗), who is "EXO", the post-2000s came out -- TFBOYS stirred the show biz like a thunderstorm.
-How popular are they? They usually appear in many hot topics, WANG Jun-kai's post on his birthday received 1.2 million forwards and nearly 300,000 comments.
+How popular are they? They usually appear in many hot topics, WANG Jun-kai's post on his birthday received 1.2 million reposts and nearly 300,000 comments.
 There used to be entertainers who went popular via songs or albums released on the web, but no one had gained popularity and fans through interactions with netizens.
 The number of their fans amounts to 20 million, most of them are female called "mum fans".
 They practised an atypical way.
@@ -29,15 +29,15 @@ WANG Jun-kai was talking with a staff, in a manner of a leader.
 When the boys got ready, our journalist started chatting about their debut.
 In Jan. 2012, WANG Jun-kai and WANG Yuan as trainees went into public's sight in videos released by TF Family.
 Though not compelling, they were gaining fans slowly and steadily.
-Then in the Children's Day of 2013, the agency made the cover of "Yangcong"(洋葱, Onion) in the topic of "finding mother", was widely reported by the media, had been forwarded by Ashin(阿信) of Mayday, and the video got over 30 million clicks.
-In Jul. 2012, WANG Jun-kai and WANG Yuan's cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") gained extensive attention on Weibo, the original singer Christine Fan(范玮琪) had forwarded the video and praised them, which was the first promotion from stars.
+Then in the Children's Day of 2013, the agency made the cover of "Yangcong"(洋葱, Onion) in the topic of "finding mother", was widely reported by the media, had been reposted by Ashin(阿信) of Mayday, and the video got over 30 million clicks.
+In Jul. 2012, WANG Jun-kai and WANG Yuan's cover of "Yige Xiang Xiatian, Yige Xiang Qiutian"(一个像夏天，一个像秋天, literally: "One Likes Summer, One Likes Autumn") gained extensive attention on Weibo, the original singer Christine Fan(范玮琪) had reposted the video and praised them, which was the first promotion from stars.
 Then the agency adjusted its strategy, made TFBOYS with WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi.
 They started releasing albums, performing in self-made short plays from then.
 Nowadays, "TFBOYS" can be seen as a "phenomenal icon", they have a huge amount of fans, and are renewing many records on the web.
 
 *[Image 6]*  
 After the free talk, the boys took photos for posters of the New Year Countdown Gala of Jiangsu TV.
-WANG Jun-kai was in preparation, and was watching weibo comments with concentration.
+WANG Jun-kai was in preparation, and was watching Weibo comments with concentration.
 The fans may help solving problems on lessons, preparing key points for exams, these made his moved very much.
 
 *[Image 7]*  

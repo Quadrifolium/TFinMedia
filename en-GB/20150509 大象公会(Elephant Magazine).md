@@ -3,14 +3,14 @@
 > [This article](http://weibo.com/p/1001603840711597362812) is published by [this weibo](http://weibo.com/3266326401/Ch59WnIzJ).
 
 Though debuted less than two years, teen group TFBOYS is the real celeb on Weibo
--- the forward of their weibo averages 200,000 times, while the most forwarded one reached nearly 20 million, which exceeded the total forward of "People's Daily", "Southern Weekly", "Global Times", "CCTV News", and "Hunan TV" in one month.
+-- the number of reposts of their Weibo posts averages 200,000, while the most reposted one reached nearly 20 million, which exceeded the total reposts of "People's Daily", "Southern Weekly", "Global Times", "CCTV News", and "Hunan TV" in one month.
 
 > Written by DU Xiu-qi(杜修琪)
 
 More and more people found that they cannot avoid seeing a name which didn't exist two years ago -- TFBOYS.
-TFBOYS' news often appear in Friend Circle or been forwarded on Weibo.
-Even GUO Jing-ming(郭敬明), who's well-known of doing Weibo marketing, had his forwarding peak related to TFBOYS:
-TFBOYS WANG Yuan's attending in his new film reached 1.2 million forwards, far above the attending of FAN Bing-bing(范冰冰), Kris Wu(吴亦凡), CHEN Xue-dong(陈学冬), or YANG Mi(杨幂).
+TFBOYS' news often appear in Friend Circle or been reposted on Weibo.
+Even GUO Jing-ming(郭敬明), who's well-known of doing Weibo marketing, had his reposting peak related to TFBOYS:
+TFBOYS WANG Yuan's attending in his new film reached 1.2 million reposts, far above the attending of FAN Bing-bing(范冰冰), Kris Wu(吴亦凡), CHEN Xue-dong(陈学冬), or YANG Mi(杨幂).
 
 Their fame exceeded many other public topics on Weibo, made some seniors in show biz sighed when facing the situation.
 
@@ -19,7 +19,7 @@ Actor CHEN He(陈赫) facing the gathering of TFBOYS' fans.
 Many TFBOYS' fans commented: Mr. CHEN, we also like you very much, if they know you were there, they must send greetings to you.
 
 TFBOYS did well on Weibo according to the data
--- From the second half of 2014, the average forward of each member's weibo is about 200,000, while the peak reached tens of millions.
+-- From the second half of 2014, the average number of reposts of each member's Weibo post is about 200,000, while the peak reached tens of millions.
 The propagation effect is nearly the sum of the whole mainstream media.
 
 However, their outstanding performance is only impressed on Weibo.
@@ -27,18 +27,18 @@ On the more traditional Baidu Tieba and famous anime video site AcFun.com and Bi
 They may receive music awards based on public votes, and get tens or even hundreds of millions of hits on their songs, but were not much well-known compared to Phoenix Legend(凤凰传奇), Eason Chan(陈奕迅), or Jay Chou(周杰伦).
 
 "The Ordinary Road"(平凡之路) of PU Shu(朴树) may be a comparison.
-To coordinate with the film, HAN Han(韩寒)'s weibo about the song reached over 380,000 forwards, matched with TFBOYS.
+To coordinate with the film, HAN Han(韩寒)'s Weibo post about the song reached over 380,000 reposts, matched with TFBOYS.
 But this song was mentioned more often in media, from music and entertainment ones to integrated newspapers, local newspapers, and portal websites.
 The dense reports made it an iconic event in media.
 
 TFBOYS' songs were less mentioned by media, seldom broke the circle of entertainment.
 
 *[Image]*  
-The release of "The Ordinary Road" on HAN Han's weibo, was forwarded 380,000 times, commented 120,000 times.
+The release of "The Ordinary Road" in HAN Han's Weibo post, was reposted 380,000 times, commented 120,000 times.
 It's a little higher than TFBOYS' on average, but had more influence on media.
 
 *[Image]*  
-WANG Jun-kai's weibo of the song "Man Cheng Hua Kai"(满城花开, literally: "Flowers Blossom Around City") was forwarded 300,000 times.
+WANG Jun-kai's Weibo post of the song "Man Cheng Hua Kai"(满城花开, literally: "Flowers Blossom Around City") was reposted 300,000 times.
 
 Except being surprised by TFBOYS, many people doubts:  
 -- Why are the fans of TFBOYS in favour of Weibo?  
@@ -187,16 +187,16 @@ The agency seldom engaged in at first, after realised their capacity, it kept co
 
 At the same time, teenage fans use Weibo more frequently than elder ones.
 Their relationships there are simple, mostly schoolfellows or other fans, which is unlike adult users who have complex relationships and are more careful about the self-image.
-Therefore, these fans are less worried about their forwards -- feel free at being talkative or being misunderstood.
+Therefore, these fans are less worried about their reposts -- feel free at being talkative or being misunderstood.
 
 *[Image]*  
 Activity arrangements among fan sites during WANG Jun-kai's birthday.
 It's easy to find out the effectiveness among famous fans and fan sites, and the propagation result is outstanding.
 
 *[Image]*  
-Regulations about forwards and likes for TFBOYS' fans
+Regulations about reposts and likes for TFBOYS' fans
 
-There exists cheating of purchasing for forwards or using special accounts for forwards only.
+There exists cheating of purchasing for reposts or using special accounts for reposts only.
 But all the marketing analysts been interviewed agreed that their real fans are much higher than other stars.
 
 The fans may also do what they can -- buy clothes for them, send SMS messages to vote, buy drinks or candies of the brand they endorses.

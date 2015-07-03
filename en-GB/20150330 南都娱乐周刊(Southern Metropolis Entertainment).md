@@ -69,7 +69,7 @@ Sky, the stylist of LI Bing-bing(李冰冰) and other hot celebrities, kept advi
 "the looks and temperament cannot be more suitable, it must be hot!"
 The shoot later verified his judgement, just in photographing WANG Jun-kai, the famous photographer CHEN Man said "okay, very good" over ten times in five minutes.
 
-In the afternoon, emcee LI Wei-jia(李维嘉) may not believe it, a weibo he posted was forwarded over 10,000 times in a very short time.
+In the afternoon, emcee LI Wei-jia(李维嘉) may not believe it, a Weibo post he wrote was reposted over 10,000 times in a very short time.
 What he posted was the fans who came to the hotel one day earlier, to "convoy" the second "Journey to Happy Camp" of TFBOYS.
 
 "The boys are now taller than emcees."
@@ -245,7 +245,7 @@ I think "Chong'ai" is similar to "The Manual of Youth" in that the rhythms and l
 "Manual" is very popular recently, even Yongzheng(雍正)'s cover appeared.  
 **K:**
 Yes, I watched it.
-And WANG Yuan had a cosplay of the pose on his weibo.  
+And WANG Yuan had a cosplay of the pose in a Weibo post.  
 **R:**
 (Saying with body movements.) Yes, but the poses of left hand and right hand are too difficult, I just posted with the last pose.  
 **Q:**
@@ -630,7 +630,7 @@ Wi-Fi is a necessity in life!
 **R:**
 I'm the one who provide the hotspot, because I have the largest mobile data.  
 **Q:**
-I saw Karry's weibo about being harassed by fans, what do you want the fans not to do the most?  
+I saw Karry's Weibo post about being harassed by fans, what do you want the fans not to do the most?  
 **K:**
 Many fans put off their classes or work to see us at our schools.
 It wastes their time, while disturbs the normal working of our schools.  

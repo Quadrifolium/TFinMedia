@@ -18,7 +18,7 @@ Fans spent heavily on edifice ad to celebrate WANG Jun-kai's birthday.
 
 CHEN He(陈赫), who is very popular due to the variety shows and films recently, were "frustrated" these days.
 When he walk out from the airport, hundreds of fans who came were to welcome TFBOYS.
-He posted a weibo with a picture of his lonely silhouette to scoff himself, "at the airport, there's TFBOYS, and a 'has-been' comedian."
+He posted on Weibo with a picture of his lonely silhouette to scoff himself, "at the airport, there's TFBOYS, and a 'has-been' comedian."
 
 Not only CHEN He, the Internet in 2014 changed upside down, youths like LU Han(鹿晗), Kris Wu(吴亦凡), G-Dragon, Victoria Song(宋茜), idols like LI Yi-feng(李易峰), William Chen(陈伟霆), LIN Geng-xin(林更新), Internet sensations like "Jiao Shou Yi Xiao Xing"(叫兽易小星), the team of "One Hundred Thousand Bad Jokes"(十万个冷笑话), all agitated the rank of the whole show biz.
 Xiao Cao, a senior fan, told us, "TFBOYS is powerful in attracting fans, they gained many from group fans, anime fans, teen fans, and many other fans."
@@ -72,7 +72,7 @@ Time Fengjun kept "performing well in school study" a prerequisite in recruiting
 Therefore, Xia-tian and many other fans told our journalist firmly, "'Xue ba' Karry always takes his 'Tianli 38 Sets'(天利38套, a guidance book series for entrance examinations), 'xue shen'(学神, a state exceeds "xue ba") 'Qian Zong'(千总, literally: "Boss Qian") usually sleeps after eleven after dancing and doing homework."
 
 TFBOYS's fans are acting very crazy.
-For example, in order to make weibo topics hotter, they keep commenting and forwarding, even chatting in the forwards;
+For example, in order to make related Weibo topics hotter, they keep commenting and reposting, even chatting in the reposts;
 to promote the rank on music charts, they keep replaying the MV all day long.
 These are what fans of Eason Chan(陈奕迅) or Jay Chou(周杰伦) won't make.
 But it's exactly such enthusiasm that made CHEN He "envious", that occupied some coser's admission opportunity of a comic show[confirmed rumour].

@@ -36,7 +36,7 @@ All the participated fans received gifts from them, the winners got BBK-produced
 **Stories Filmed into MV**
 
 It is known that BBK e-tutor is the first endorsement for TFBOYS, this cooperation itself was quite dramatic.
-It is said that WANG Jun-kai posted a weibo about his preparation for examinations on 7th Jun., mentioned a gift from a fan, which is exactly a BBK e-tutor.
+It is said that WANG Jun-kai posted about his preparation for examinations on 7th Jun., mentioned a gift from a fan, which is exactly a BBK e-tutor.
 Many fans began asking for an endorsement for them on BBK's official Weibo account.
 
 After knowing TFBOYS, BBK responded rapidly.
