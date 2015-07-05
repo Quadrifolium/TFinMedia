@@ -4,7 +4,7 @@
 
 > Source: [成都商报新闻客户端](http://newsapp.cdsb.com/news/42911/)
 
-*[Image]*
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605223258115.jpg)
 
 TFBOYS debuted in the summer of 2013, the name is the abbreviation of "The Fighting Boys", which is full of positive energy.
 The members are three boys in junior middle schools -- WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi.
@@ -36,7 +36,7 @@ To make WANG Jun-kai eat well, the fan even worked in the rice noodle café for 
 "I serve guests or wash dishes, about one hour per day."
 Xiao Rou never wash dishes at home, but does all this because of WANG Jun-kai.
 
-*[Image]*  
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605222750687.jpg)  
 *WANG Yuan(right) in the studio*
 
 > Written by REN Hong-wei(任宏伟)  
@@ -67,7 +67,7 @@ to uncover the secret of its mysterious popularity, to answer "who are they", "w
 Through the discovery, we wish to bring a deep thinking to the fickle entertainment market in China:
 How should we cultivate idols? What idols do we need?
 
-*[Image]*  
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605233825533.jpg)  
 *Fans waiting outside WANG Jun-kai's school*
 
 ---
@@ -93,7 +93,7 @@ He greeted our reporter politely.
 That was the figure of a boy, with a sweet smile, nice features, and pointed chin -- an under-14-year-old boy with a clear-cut silhouette.
 After the interview, he stood up and bowed, said "thank you" before leaving.
 
-*[Image]*
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605222950925.jpg)
 
 **Joy of Being Famous**
 
@@ -117,7 +117,7 @@ WANG Yuan said he is the most talkative one, like a spokesman.
 "Besides singing, I can be a good M.C., I hosted all the shows in school.
 I want to be an excellent emcee like HE Jiong(何炅)."
 
-*[Image]*  
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605220944716.jpg)  
 *WANG Yuan yawning in the studio*
 
 **Troubles beyond Fame**
@@ -137,7 +137,7 @@ After choosing this path, WANG Yuan said firmly that he will go straight to the 
 "I want to be an excellent entertainer.
 My targets are JJ Lin(林俊杰) and G.E.M.(Gloria Tang Tsz-Kei, 邓紫棋)."
 
-*[Image]*
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605221006735.jpg)
 
 **Talk with Agency**
 
@@ -187,7 +187,7 @@ They gained some popularity through the cover of "Yige Xiang Xiatian, Yige Xiang
 WANG Jun-kai and WANG Yuan was not good enough at dancing, so we found YI Yang-qian-xi to make the group -- both singing and dancing are necessary.
 We have our plan, we did this after preparation.
 
-*[Image]*
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/2014060522102215.jpg)
 
 **Q:**
 But the fame comes and goes, especially via the web. Do you worry about this?  
@@ -210,7 +210,7 @@ WANG Jun-kai had expressed his opposition of zombie fans with a post saying,
 Or, I have to remove them tonight."
 This is not pretended, we don't hype up these matters.
 
-*[Image]*
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605220936343.jpg)
 
 **Q:**
 SHANG Wen-jie(尚雯婕) had said TFBOYS are not real "entertainers", it has no personality and works.  
@@ -241,7 +241,7 @@ Actually, we don't want them to be much exposed.
 This interview is the first one we received in depth with media face-to-face, others before were through phones.
 We wish to protect them well, make the mysterious last longer.
 
-*[Image]*  
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605221029703.jpg)  
 *WANG Jun-kai studying in classroom*
 
 **Voices from Music Industry**
@@ -265,8 +265,8 @@ That depends, just like there is only one Michael Jackson."
 It's okay to learn this mode, as to the result of the practice, many endeavours should be made.
 "The agency should be more professional, in order not to make the group only a flash."
 
-*[Image]*  
-*Teacher explaining questions to WANG Jun-kai*
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605221037757.jpg)  
+*The teacher explaining questions to WANG Jun-kai*
 
 
 **Postscript**
@@ -305,4 +305,4 @@ They are learning from Japanese and Korean mode, but I wish they could also lear
 At present, or in a very long time, TFBOYS need a good music work, to become real entertainers then.
 However, their appearance was like a flash, made the Chinese show biz totally unprepared.
 
-*[Image]*
+![Image](http://cdsbapp-cdsbappstorage.stor.vipsinaapp.com/uploads/2014/06/20140605221013673.jpg)

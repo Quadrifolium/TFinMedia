@@ -14,6 +14,8 @@ They are like blooming flowers of different colours, form an attracting landscap
 And the base of the scenery is no doubt clovers which stands for lucky.
 There's no need to seize happiness around, accompany is the utmost happiness.
 
+![Image](../pics/20140523MMFD006.jpg)
+
 **WANG Jun-kai**
 
 ## Your Persistence Attracts
@@ -68,6 +70,8 @@ N/A
 
 *P29*
 
+![Image](../pics/20140523MMFD007.jpg)
+
 **WANG Yuan**
 
 ## Simple "Er Huo"
@@ -113,6 +117,8 @@ These had been ridiculed by Karry many times as "only (children's) cartoons suit
 ---
 
 *P30*
+
+![Image](../pics/20140523MMFD008.jpg)
 
 **YI Yang-qian-xi**
 

@@ -6,12 +6,12 @@
 As a group making 1970s and 1980s anxious about being out of fashion, the rise of TFBOYS is very Internet-like, while the phenomenon is very unique.
 Our journalist interviewed the members of TFBOYS, the boss of the agency, and their manager, to uncover this unique phenomenon as well as doubts in lip-synch, overdosed fans, and doing the wrong duty.
 
-*[Image]*
+![Image](http://img.tbnimg.com/epaper/20150116/C10/02AD30FB3963.jpg)
 
-*[Image]*  
+![Image](http://img.tbnimg.com/epaper/20150116/C10/02F030663926.jpg)  
 TFBOYS at "Day Day Up"(天天向上), YI Yang-qian-xi was writing Chinese calligraphy.
 
-*[Image]*  
+![Image](http://img.tbnimg.com/epaper/20150116/C10/02C8307439C3.jpg)  
 Fans spent heavily on edifice ad to celebrate WANG Jun-kai's birthday.
 
 ## What TFBOYS said

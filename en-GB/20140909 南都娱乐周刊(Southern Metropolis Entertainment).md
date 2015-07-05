@@ -16,7 +16,7 @@ and make a thorough analysis of the secrets behind TFBOYS with TV producer, dire
 
 > Interviewed and written by YANG Bei-bei(杨蓓蓓) and JIANG Meng-yao(蒋梦瑶)
 
-*[Image]*
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756182142285.jpg)
 
 **GROWTH**
 ## How to Be TFBOYS
@@ -98,12 +98,14 @@ But the director could not get there that day, the boys went to the office inste
 Their pureness and hard-working won many directors' praise.
 TIAN Tian even said in her Friend Circle that the whole team had become the boys' fans.
 
-*[Image]*  
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756209183831.jpg)  
 On 28th Aug., TFBOYS guested in "Generation Show", captured the hearts of all other guests and directors.
 
-*[Image]*  
-*[Image]*  
-*[Image]*
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756232735178.jpg)
+
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756224434704.jpg)
+
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756202453446.jpg)
 
 
 **PROMOTION**
@@ -125,7 +127,7 @@ To understand them, you should seize the core of fans economy -- fully affined i
 "In about two to three years, those doubts may disappear."
 MAO Jia was quite confident of the future of TFBOYS.
 
-*[Image]*
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756176381955.jpg)
 
 ### Q&A on TFBOYS's Popularity
 
@@ -328,7 +330,7 @@ Roy thinks he's nagging, but I think he's risible.
 Once I was carrying a cat in my arms, and the cat ran away. Karry kept grinning aside, so hard that his eyes were almost closed, so long that he couldn't stop.
 It's very silly.
 
-*[Image]*
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756169121540.jpg)
 
 **Round Table Meeting**
 ## Sustainable Development of TFBOYS
@@ -423,11 +425,12 @@ In the beginning, we were treated as overdosed."
 But following TFBOYS's popularity, there came controversies,
 "I can't stand those intended rumours, slanders, and abuses, those totally fabricated things." Xiao-yu said.
 
-*[Image]*  
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756239165546.jpg)  
 Crazy "weird aunties".
 
-*[Image]*  
-*[Image]*  
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756188782664.jpg)
+
+![Image](http://www.smweekly.com/photocenter/2014/201434/a/P635458756195733062.jpg)  
 Derivatives that are their source of income.
 
 **PROFIT**

@@ -17,6 +17,8 @@ But when communicating with the boys, to be honest and frank, you shouldn't fanc
 ## TFBOYS' Thirty "Meng"-Styles
 ### More than thirty, to be discovered~
 
+![Image](/../pics/20140523MMFD009.jpg)
+
 #### Young
 
 Once seeing the boys, those crazy sister fans and auntie fans will be envious:
@@ -25,10 +27,14 @@ Looking at their milky skins, it's hard to control oneself not to pinch.
 (Just imagining, don't be irritated ^_^
 Well, that pinching hand you previously saw is not mine.)
 
+![Image](/../pics/20140523MMFD010.jpg)
+
 #### Physical Skills
 
 Roy's skills in basketball had been mentioned before, and Jackson's good at Taekwondo which Roy judged as "violent sport".
 And Karry will play basketball when he has time, but he doesn't have much, especially when he's preparing for the High School Entrance Examination.
+
+![Image](/../pics/20140523MMFD011.jpg)
 
 #### "Xue Ba"(学霸)
 
@@ -83,10 +89,16 @@ There are always things to talk about for the often-departed guys.
 Took advantage of the ceremony in Beijing, the boys got a good eating specially, with Qian Zong as the host.
 Before that, when Qian Zong went to Chongqing, the other two also entertained him well~
 
+![Image](/../pics/20140523MMFD012.jpg)
+
 #### Family Love
 
 Besides TFBOYS, other members (like LIU Zhi-hong(刘志宏)) of TF Family played in "Study Room In Boys' School".
 In other sections of "TF Teens GO!", like "TF Family News", you can easily feel the warmth and love in this large family.
+
+![Image](/../pics/20140523MMFD013.jpg)
+
+![Image](/../pics/20140523MMFD014.jpg)
 
 #### Consciousness as an Idol
 
@@ -108,6 +120,8 @@ Then Roy would show a pitiful face.
 It's easy to find their changes in a short time, such as the height.
 Karry is already 1.73 metres tall (written in Baidu Baike), Roy is supplementing nutrition every day (see his Weibo pictures), Jackson has quite a big appetite.
 Their dressing is stylish now, after they reach 1.8 metres tall, it will be unimaginable.
+
+![Image](/../pics/20140523MMFD015.jpg)
 
 #### Compassion
 
@@ -175,6 +189,8 @@ N/A
 Although the "height gaps" might seem adorable, considering height is a prerequisite of being a "moving poster", it's easy to understand the delivery of milk as a present.
 They must be much taller!
 
+![Image](/../pics/20140523MMFD016.jpg)
+
 #### Growing up
 
 For Roy, Karry, and Jackson, the greatest advantage is the age.
@@ -235,6 +251,8 @@ In Qian Zong's Weibo, you can easily find his younger brother
 -- taking a photo with him in the arms, dressing him up like a panda, basking in the sunshine with him in the arms, watching a film with him, kissing him in the face ...
 The two brothers are so cute!
 Roy and Karry also like him very much, they would like to compare something resilient and elastic to his face.
+
+![Image](/../pics/20140523MMFD017.jpg)
 
 #### Weird Jokes from another World
 
@@ -607,4 +625,4 @@ Do we have the chance?
 
 *P50*
 
-*[Back Cover]*
+![Image](/../pics/20140523MMFD018.jpg)

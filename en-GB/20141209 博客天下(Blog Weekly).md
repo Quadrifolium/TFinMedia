@@ -3,14 +3,14 @@
 
 > Source: [博客天下](http://weibo.com/1594590224/BA3DKnAmZ)
 
-*[Cover]*
+![Cover](/../pics/20141209BLOG001.jpg)
 
 # Brave Teens Won't Be Let Down
 
 **In A System Built up with Money and Affection**  
 **Teen Idols Peddle Real Life for Trial of Fame**
 
-*[Image]*  
+![Image](/../pics/20141209BLOG002.jpg)  
 TFBOYS members: WANG Jun-kai(left), WANG Yuan, YI Yang-qian-xi(right)
 
 ### A Cultivation Game of TFBOYS
@@ -110,7 +110,7 @@ LI thought, though the mode of AKB48 is not replicable, the feeling can be simul
 Actually, SNH48, a sister group of AKB48, was under preparation in Shanghai.
 Its members are elder girls, aimed at audiences of otaku.
 
-*[Image]*  
+![Image](/../pics/20141209BLOG003.jpg)  
 In Chongqing, WANG Jun-kai was studying in classroom.
 
 "8 to 12 years old, positive appearance, well-developed figure, coordinate body;
@@ -277,7 +277,7 @@ It said that due to the inconformity of the determination of "literature and art
 Some fans found that iQiyi(爱奇艺), which often shows TFBOYS on the main page, hided everything about them.
 Several days later, although Time Fengjun declared that "the rumour is totally a fraud", the team told media not to report them at the time.
 
-*[Image]*  
+![Image](/../pics/20141209BLOG004.jpg)  
 In Sept., 2014, fans from all over China gathered in Chongqing to celebrate WANG Jun-kai's fifteenth birthday.
 
 ### "With My Dim Light, Guard Your Boundless Glory"
@@ -315,10 +315,10 @@ Everyone knew it's thoroughly a game about money, but the fans agreed that "to t
 The organiser set a limit of twenty trophies per account, but a fan at the stadium used over 60 accounts to give over 1,200 trophies.
 In three hours, the fans poured 200,000 yuan to help the boys won again.
 
-*[Image]*  
+![Image](/../pics/20141209BLOG005.jpg)  
 Outside WANG Jun-kai's school, there's dozens of fans waiting for seeing him every day.(Photographed by LIU Song(刘嵩))
 
-*[Image]*  
+![Image](/../pics/20141209BLOG006.jpg)  
 Outside WANG Yuan's school, every stationary shop has pirate commodities about him.(Photographed by LIU Song(刘嵩))
 
 Paved by countless fans' time and money, 14-year-old WANG Jun-kai, 13-year-old WANG Yuan, and 13-year-old YI Yang-qian-xi won the awards of "The Most Popular Singer in Mainland China" and "The Popular Singer in Yin Yue Live" at the ceremony.

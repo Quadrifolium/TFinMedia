@@ -5,10 +5,14 @@ Produced by Sina Games
 
 > Source: [我是玩家_新浪游戏](http://games.sina.com.cn/g/zt/iamagamer016/index.shtml)
 
+![Image](http://i2.sinaimg.cn/gm/2014/0902/U4726P115DT20140902162957.jpg)
+
 They are the most popular group in 2014, their videos receive ten millions hits, their fans is one of the four sects on Weibo, they are 100% made in China -- they are TFBOYS.
 Recently, TFBOYS visited Sina.com, shared their journey as entertainers with fans.
 
 *[Q: Sina Games, K: WANG Jun-kai(Karry), R: WANG Yuan(Roy), J: YI Yang-qian-xi(Jackson)]*
+
+![Image](http://i3.sinaimg.cn/gm/2014/0903/U4726P115DT20140903144525.jpg)
 
 ## Requite Clovers with Strengths
 
@@ -22,6 +26,8 @@ I was nervous at first, but now I know that we should pour more efforts, not to 
 **J:**
 Right.
 We wish more people can see our strengths, then they'll not be doubtful about our popularity.
+
+![Image](http://i2.sinaimg.cn/gm/2014/0902/U4726P115DT20140902171131.jpg)
 
 ## Not Toilsome at all with Companions
 
@@ -50,6 +56,8 @@ It makes the toil be forgotten quickly.
 **J:**
 It's not toilsome, Karry takes care of me, Roy plays with me, it's not toilsome at all with them.
 
+![Image](http://i0.sinaimg.cn/gm/2014/0902/U4726P115DT20140902171133.jpg)
+
 ## No Secret Is the Secret of Being a "Xue Ba"
 *["Xue Ba", 学霸, one who's score ranks top in class or school]*
 
@@ -76,6 +84,8 @@ Beijing Film Academy and Shanghai Theatre Academy?
 Communication University of China is one.  
 **K:**
 Right, many stars graduate from these universities.
+
+![Image](http://i3.sinaimg.cn/gm/2014/0902/U4726P115DT20140902171136.jpg)
 
 ## Be a Quiet Prince Charming
 
@@ -104,6 +114,8 @@ What's wrong with "high"?
 **J:**
 Then I would choose the quiet ones.
 
+![Image](http://i2.sinaimg.cn/gm/2014/0902/U4726P115DT20140902171139.jpg)
+
 ## Play Mobile Games More
 
 **Q:**
@@ -126,6 +138,8 @@ I'm good at racing games.
 **J:**
 I don't play much, they are better.
 
+![Image](http://i3.sinaimg.cn/gm/2014/0902/U4726P115DT20140902171141.jpg)
+
 ## Ending Words
 
 **Q:**
@@ -136,3 +150,5 @@ and I hope the Clovers may go on supporting us, supporting Sina.com, supporting 
 **R:**
 Er, I hope all the Clovers feel the happiness we bring to you, and be happy every day.  
 **J:** Please support TFBOYS, we will give you an outstanding concert in ten years.
+
+![Image](http://i2.sinaimg.cn/gm/2014/0902/U4726P115DT20140902171144.jpg)

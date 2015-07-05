@@ -4,7 +4,7 @@
 
 # TFBOYS: Atypical Idols
 
-*[Image 1]*  
+![Image 1](http://y0.ifengimg.com/a/2015_07/42c6739ca360f64.jpg)  
 In 2014, when people were still doubting who is LU Han(鹿晗), who is "EXO", the post-2000s came out -- TFBOYS stirred the show biz like a thunderstorm.
 How popular are they? They usually appear in many hot topics, WANG Jun-kai's post on his birthday received 1.2 million reposts and nearly 300,000 comments.
 There used to be entertainers who went popular via songs or albums released on the web, but no one had gained popularity and fans through interactions with netizens.
@@ -12,20 +12,20 @@ The number of their fans amounts to 20 million, most of them are female called "
 They practised an atypical way.
 Therefore, Phoenix Entertainment tracked their life and work, to take you closer to these atypical teen idols.
 
-*[Image 2]*  
+![Image 2](http://y3.ifengimg.com/a/2015_07/d2ba504a2ce7ec6.jpg)  
 In the morning of a weekend, our journalist arrived at the hotel TFBOYS stayed at.
 The boys were not fully awakened.
 Seeing the journalist came in, YI Yang-qian-xi were preparing to get up, quietly and charmingly.
 
-*[Image 3]*  
+![Image 3](http://y0.ifengimg.com/a/2015_07/d4774b80e8282bb.jpg)  
 WANG Yuan was to get up next.
 The 14-year-old boy can do well in self-care.
 But he's still shy before stranger's camera, like others in his age.
 
-*[Image 4]*  
+![Image 4](http://y0.ifengimg.com/a/2015_07/3f018ec20038c06.jpg)  
 WANG Jun-kai was talking with a staff, in a manner of a leader.
 
-*[Image 5]*  
+![Image 5](http://y0.ifengimg.com/a/2015_07/ff67ff2c0f4479f.jpg)  
 When the boys got ready, our journalist started chatting about their debut.
 In Jan. 2012, WANG Jun-kai and WANG Yuan as trainees went into public's sight in videos released by TF Family.
 Though not compelling, they were gaining fans slowly and steadily.
@@ -35,63 +35,63 @@ Then the agency adjusted its strategy, made TFBOYS with WANG Jun-kai, WANG Yuan,
 They started releasing albums, performing in self-made short plays from then.
 Nowadays, "TFBOYS" can be seen as a "phenomenal icon", they have a huge amount of fans, and are renewing many records on the web.
 
-*[Image 6]*  
+![Image 6](http://y2.ifengimg.com/a/2015_07/522188b015ffcf9.jpg)  
 After the free talk, the boys took photos for posters of the New Year Countdown Gala of Jiangsu TV.
 WANG Jun-kai was in preparation, and was watching Weibo comments with concentration.
 The fans may help solving problems on lessons, preparing key points for exams, these made his moved very much.
 
-*[Image 7]*  
+![Image 7](http://y2.ifengimg.com/a/2015_07/db95ee5a3269a70.jpg)  
 Sometimes WANG Yuan would talk with WANG Jun-kai, sharing the comments he read.
 
-*[Image 8]*  
+![Image 8](http://y3.ifengimg.com/a/2015_07/59ac210453cd06c.jpg)  
 YI Yang-qian-xi waiting aside changed his suit, was resting on a chair.
 
-*[Image 9]*  
+![Image 9](http://y2.ifengimg.com/a/2015_07/6ac353105901e65.jpg)  
 Before taking photos, the boys were looking around the studio curiously.
 
-*[Image 10]*  
+![Image 10](http://y1.ifengimg.com/a/2015_07/7f15831da388c21.jpg)  
 During the shoot, as the charmer and vocalist, WANG Jun-kai posed like a professional model.
 
-*[Image 11]*  
+![Image 11](http://y1.ifengimg.com/a/2015_07/a327a0ed1203a82.jpg)  
 Vocalist WANG Yuan was active and lively, acted quite professional, totally different from that shy boy in the morning.
 
-*[Image 12]*  
+![Image 12](http://y2.ifengimg.com/a/2015_07/67a4186df5b17e2.jpg)  
 Dancer YI Yang-qian-xi thumbed up with bright smile like a boy next door.
 His score ranked among the best in school, was a real "xue ba"(学霸, one who's score ranks top in class or school) off stage.
 
-*[Image 13]*  
+![Image 13](http://y3.ifengimg.com/a/2015_07/230ab44389a70a3.jpg)  
 TFBOYS reminded many people of "Xiao Hu Dui"(小虎队, The Little Tigers), while they were quite similar in some aspects.
 WANG Jun-kai is like Nicky Wu(吴奇隆), handsome and cool, attracts those who like hard-core idols.
 WANG Yuan is like Alec Su(苏有朋), cute and warm, attracts girl fans and mum fans.
 YI Yang-qian-xi is like Julian Chen(陈志朋), outstanding in dance and school study, arouses adoration in the heart of fans.
 Such a solid triangle covers the favourites of the mainstream of fans.
 
-*[Image 14]*  
+![Image 14](http://y1.ifengimg.com/a/2015_07/c82e5564c3caf81.jpg)  
 After the shoot, TFBOYS was to start a one-week enclosed training.
 YI Yang-qian-xi was jogging.
 
-*[Image 15]*  
+![Image 15](http://y0.ifengimg.com/a/2015_07/36be3899008c46d.jpg)  
 WANG Yuan was playing basketball, he showed the wish of being taller in this year.
 
-*[Image 16]*  
+![Image 16](http://y0.ifengimg.com/a/2015_07/a84516d71c54045.jpg)  
 During the break of warm-up, WANG Jun-kai was watching his mobile and smiling.
 
-*[Image 17]*  
+![Image 17](http://y3.ifengimg.com/a/2015_07/7fdcba0c6b0af37.jpg)  
 WANG Yuan started practising, was watching the lyrics of the new song.
 From being trainees, the members of TFBOYS had their training mostly in vacations and weekends, including singing, dancing, showmanship and many other skills.
 TFBOYS are pure and young, their songs show the emotions of teenagers, express positive energy with optimism.
 
-*[Image 18]*  
+![Image 18](http://y1.ifengimg.com/a/2015_07/13b587352d65517.jpg)  
 YI Yang-qian-xi was in discussion with the producer of the new song, listening to the advices carefully.
 In fact, the popularity of TFBOYS in sister fans and auntie fans are not just because of their looks, politeness, and kindness, but also because they are pure like a piece of paper, they do things with heart and soul.
 
-*[Image 19]*  
+![Image 19](http://y2.ifengimg.com/a/2015_07/82946a35abf3f6a.jpg)  
 WANG Jun-kai started practising with lyrics in hand.
 Their booming trend continues, the activities before Chinese New Year had already been fully arranged.
 In the winter vacation, they will attend in Spring Festival Galas of Beijing TV and Hunan TV, in the Internet Spring Festival Gala of CCTV, record new songs, shoot new MVs, get training in singing and dancing.
 But don't worry about them, the agency left about two weeks for them to stay with their families, do the homework, and take extra lessons.
 
-*[Image 20]*  
+![Image 20](http://y0.ifengimg.com/a/2015_07/86ab75f017423d4.jpg)  
 The boys were practising together, and our journalist's photographing ended up.
 The road of TFBOYS just starts, it's not just the handsome looks and special voices that attracted countless fans, they are also showing positive energy to fans with their actions
 -- there will be trials and hardships on the road to dreams, keep walking on.
@@ -216,4 +216,4 @@ To be taller~
 **J:**
 To enter a good senior middle school.
 
-*[Image]*
+![Image](http://y3.ifengimg.com/a/2015/0210/3bd8dd8b39e2e3e.jpg)

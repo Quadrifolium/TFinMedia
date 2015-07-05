@@ -13,7 +13,7 @@ Three boys under fifteen were pushed to the dazzling limelight far before they k
 They have a "ten-year promise" with fans, but it's hard for them even to imagine the scene when they are twenty, only know that they will be more -- handsome!  
 *[This paragraph appears in [the mobile page](http://xw.qq.com/iphone/m/instar/7e8d7e5ccbddfd9576be61e3ab86aa73.html)]*
 
-*[Image]*
+![Image](http://img1.gtimg.com/ninja/0/ninja141992902621247.jpg)
 
 Voices of frolic on the corridor of the hotel came closer.
 With a "bang", a door was bumped open, three boys dashed in the room
@@ -144,7 +144,7 @@ What a sigh that the cover of "Yangcong" what fans treated as "changing TFBOYS's
 At present, WANG Yi-feng is still a common trainee of TF Family.
 Yuna didn't say much except "he met his mother after that", with the reason that "it's inconvenient to talk about trainees who is not debuted yet".
 
-*[Image]*  
+![Image](http://img1.gtimg.com/ninja/0/ninja141992752454815.jpg)  
 On 21st Sept., TFBOYS's fans celebrated WANG Jun-kai's birthday using the LED screen outside Sheraton Chongqing Hotel(重庆喜来登大酒店).
 
 ## A Cautious Gambling
@@ -177,7 +177,7 @@ The video had been played on mobile TV of Chongqing, and promoted in QQ pop-up w
 A fan said she first know the two boys through the pop-up window.
 The second work of HUANG Tun is "Yangcong", which prompted their early debut.
 
-[Image]
+![Image](http://img1.gtimg.com/ninja/0/ninja141992759862346.jpg)  
 Nowadays, where TFBOYS comes, there fans gather.
 
 ## Self-written Rules
@@ -252,7 +252,7 @@ On 15th Apr., 2014, after countless "Clovers" continuously replaying, liking, co
 A fan Reka wrote, "We did all these just for seeing your smiles, we won't make you fail because we know you don't like to lose.
 We will raise you to higher and larger stages, to see you shining, becoming real idols."
 
-*[Image]*  
+![Image](http://img1.gtimg.com/ninja/0/ninja141992766130073.jpg)  
 TFBOYS is not positioned as idol stars, but the boys next door.
 
 ## Atypical Idols
@@ -306,7 +306,7 @@ To us old aunties for music, it's the greatest happiness to see Kai-Yuan singing
 Thank you very much."
 *[What these sentences are saying confuses me.]*
 
-*[Image]*  
+![Image](http://img1.gtimg.com/ninja/0/ninja141992809631590.jpg)  
 TFBOYS writing Chinese calligraphy in a TV show.
 
 ## An Unknown Promise
@@ -376,7 +376,7 @@ Our strengths will be advanced, we will be a group much better."
 
 He thought a few seconds, "be the best in my heart, and be taller."
 
-*[Image]*  
+![Image](http://img1.gtimg.com/ninja/0/ninja141992835580326.jpg)  
 The bags and clothes TFBOYS have are soon the "hot patterns" on Taobao.
 
 ## Conversations: Too Tired to Be Stars

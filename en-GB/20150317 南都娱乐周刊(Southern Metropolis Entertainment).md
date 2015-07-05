@@ -1,9 +1,9 @@
-> [This article](http://weibo.com/p/1001603822465955558971) is published by [this weibo](http://weibo.com/1216431741/C9qsBb320).
+> [This article](http://weibo.com/p/1001603822465955558971) is published by [this Weibo post](http://weibo.com/1216431741/C9qsBb320).
 
 **TOP 5: TFBOYS**
 ## Real Youth with Infinite Possibilities
 
-*[Image]*
+![Image](http://ww1.sinaimg.cn/large/4881467dgw1eqc58s9zckj20go0fiq3z.jpg)
 
 **Netizens:** 12737 votes(3.04%), ranked No.4  
 **Journalists:** 13 votes(3.03%), ranked No.7  
@@ -76,7 +76,7 @@ AN Xiao-fen(安晓芬) (producer of "Tiny Times"(小时代)):
 I noticed TFBOYS before, in an accident. I found they are very popular, but I didn't know them.
 I was curious, and searched on the web. They are cute, and I became a fan.
 
-*[Image]*
+![Image](http://ww2.sinaimg.cn/large/4881467dgw1eqc5956rbzj20go0egdgu.jpg)
 
 **S.M.E. & TFBOYS**
 

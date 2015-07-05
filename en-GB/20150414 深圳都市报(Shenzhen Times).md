@@ -1,10 +1,10 @@
-> Scanned by [Mr_馄饨先森](http://weibo.com/ericluoo). View from [this weibo](http://weibo.com/1914156097/CdeTHwxqH).
+> Scanned by [Mr_馄饨先森](http://weibo.com/ericluoo). View from [this Weibo post](http://weibo.com/1914156097/CdeTHwxqH).
 
 **2015 Top Chinese Music Awards Announced**
 # YANG Mi Record Video to TFBOYS
 # "Be In Love A Bit Later"
 
-*[Image]*  
+![Image](/../pics/20150414SZTM001.jpg)  
 The three boys of TFBOYS were the biggest winners, both in popularity and awards.
 
 > Written by WANG Zhou-meng-yu(王周梦昱)

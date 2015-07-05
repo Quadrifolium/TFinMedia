@@ -13,6 +13,9 @@ But we have recordings to review the past, to see the immature performances, the
 
 Let's turn back to feel their past, and tell ourselves: we'll never miss their future.
 
+![Image](../pics/20140523MMFD003.jpg)
+
+
 ## First Impression
 
 **Karry**
@@ -71,6 +74,10 @@ When the fans were cheering, they said, "We will keep fighting. Thank you, all o
 At present, TFBOYS not only regularly appears in TF Family's show "TF Teens GO!" and "Study Room in Boys' School", but were also invited to many performances and shows across the country.
 As Karry was preparing for the High School Entrance Examination, TFBOYS didn't attend many.
 However, seeing the exciting and dramatic appearances of the fans when talking about the three boys, it is convinced that their solo concert will not be far away.
+
+![Image](../pics/20140523MMFD004.jpg)
+
+![Image](../pics/20140523MMFD005.jpg)
 
 ---
 

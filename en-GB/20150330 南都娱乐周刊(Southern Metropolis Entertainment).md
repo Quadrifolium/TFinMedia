@@ -1,8 +1,9 @@
 > Source: [南都娱乐周刊](http://weibo.com/1216431741/CbxTu0rJj)  
-> Scanned by [Mr_馄饨先森](http://weibo.com/ericluoo). View from [this weibo](http://weibo.com/1914156097/CbqXesQv6).
+> Scanned by [Mr_馄饨先森](http://weibo.com/ericluoo). View from [this Weibo post](http://weibo.com/1914156097/CbqXesQv6).
 
-*[Cover]*
+*[Cover]*  
 **Complete Record of Ancient Costumes (Exclusive)**
+
 # TFBOYS
 ## Not "Xiao Xianrou", We Are "Teens"
 *["Xiao Xianrou", 小鲜肉, literally: "Fresh Bodies")]*
@@ -47,6 +48,8 @@ How did they think about the words "xiao xianrou"? Wait and see.
 ---
 
 *P14*
+
+![Image](/../pics/20150330SMET001.jpg)![Image](/../pics/20150330SMET002.jpg)![Image](/../pics/20150330SMET003.jpg)
 
 **Fighting, Juniors!**
 ## 48 Hours After Release of "Chong'ai"
@@ -210,6 +213,8 @@ I hope that everything goes well to them, that they can always do what they like
 *P20*
 
 ## TF Youthful Interview
+
+![Image](/../pics/20150330SMET004.jpg)![Image](/../pics/20150330SMET005.jpg)
 
 **S.M.E. x TFBOYS**
 
@@ -657,4 +662,4 @@ Just getting taller, that's all.
 
 *P27*
 
-N/A
+![Image](/../pics/20150330SMET006.jpg)

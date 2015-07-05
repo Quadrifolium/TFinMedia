@@ -6,16 +6,16 @@ Dayoo News 2014-08-29 from Guangzhou Daily
 
 > Source: [广州日报](http://gzdaily.dayoo.com/html/2014-08/29/content_2735372.htm)
 
-*[Image]*  
+![Image](http://gzdaily.dayoo.com/res/1/1/2014-08/29/AII1/res01_attpic_brief.jpg)  
 Journey of BBK e-tutor surveyors and TFBOYS fan meeting
 
-*[Image]*  
+![Image](http://gzdaily.dayoo.com/res/1/1/2014-08/29/AII1/res03_attpic_brief.jpg)  
 YI Yang-qian-xi writing Chinese calligraphy
 
-*[Image]*  
+![Image](http://gzdaily.dayoo.com/res/1/1/2014-08/29/AII1/res05_attpic_brief.jpg)  
 Presentation of "BBK Xue Ba Corps"
 
-*[Image]*  
+![Image](http://gzdaily.dayoo.com/res/1/1/2014-08/29/AII1/res07_attpic_brief.jpg)  
 BBK donated collector's edition of e-tutors worth 100,000 yuan
 
 On 26th Aug., TFBOYS took part in "Journey of BBK e-tutor surveyors and TFBOYS fan meeting" with hundreds of fans and journalists in Chongqing.

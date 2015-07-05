@@ -3,16 +3,16 @@
 
 > Source: [新京报网](http://www.bjnews.com.cn/ent/2014/06/06/319568.html)
 
-*[Image]*  
+![Image](http://img.bjnews.com.cn/epaper/20140606/C06/02F230432377.jpg)  
 Single "Heart Meng·Chufa"(Heart梦·出发, literally: "Heart, Dream Starts Off") released in 2013.
 
-*[Image]*  
+![Image](http://img.bjnews.com.cn/epaper/20140606/C06/024B30142316.jpg)  
 Single "Magic Castle"(魔法城堡) released in 2014.
 
-*[Image]*  
+![Image](http://img.bjnews.com.cn/epaper/20140606/C06/02EF30EA236E.jpg)  
 Single "Ai Chufa"(爱出发, literally: "Love Starts Off") released in 2013.
 
-*[Image]*  
+![Image](http://img.bjnews.com.cn/epaper/20140606/C06/02AC30592395.jpg)  
 **YI Yang-qian-xi**  
 Date of birth: 28th Nov., 2000  
 Place of birth: Huaihua, Hunan  
@@ -26,7 +26,7 @@ Date of birth: 21st Sept., 1999
 Place of birth: Chongqing  
 Role: Leader, vocal
 
-*[Image]*  
+![Image](http://img.bjnews.com.cn/epaper/20140606/C06/02EF30A82345.jpg)  
 Screenshot of "Study Room in Boys' School"(男生学院自习室)
 
 In the past year, many aunts and uncles were doubting who is LU Han, who is "EXO"; now the post-2000s come out

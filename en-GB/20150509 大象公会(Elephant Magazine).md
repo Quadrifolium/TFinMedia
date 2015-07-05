@@ -1,6 +1,6 @@
 # Why Is TFBOYS So Popular
 
-> [This article](http://weibo.com/p/1001603840711597362812) is published by [this weibo](http://weibo.com/3266326401/Ch59WnIzJ).
+> [This article](http://weibo.com/p/1001603840711597362812) is published by [this Weibo post](http://weibo.com/3266326401/Ch59WnIzJ).
 
 Though debuted less than two years, teen group TFBOYS is the real celeb on Weibo
 -- the number of reposts of their Weibo posts averages 200,000, while the most reposted one reached nearly 20 million, which exceeded the total reposts of "People's Daily", "Southern Weekly", "Global Times", "CCTV News", and "Hunan TV" in one month.

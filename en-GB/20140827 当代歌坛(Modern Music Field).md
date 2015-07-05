@@ -1,6 +1,8 @@
 **Modern Music Field No.606**
 
-> Scanned by [Mr_馄饨先森](http://weibo.com/ericluoo). View from [this weibo](http://weibo.com/1914156097/BjChu3aBK).
+> Scanned by [Mr_馄饨先森](http://weibo.com/ericluoo). View from [this Weibo post](http://weibo.com/1914156097/BjChu3aBK).
+
+![Image](/../pics/20140827MMFD001.jpg)
 
 # TFBOYS
 # THE FIRST CHAPTER
@@ -84,3 +86,5 @@ ten-year is short, the first chapter had finished.
 Every leading step is full of unknown hardships, may encounter rumours and prejudices, but after we reach the destination, the companionship will be the shinning chapter in our memories.
 The past chapter cannot be replayed. On the leading road, we hope the time could be faster and faster, to let them perform on the dreaming stage earlier;
 we hope the time could be slower and slower, to make the companionship longer, and longer.
+
+![Image](/../pics/20140827MMFD002.jpg)

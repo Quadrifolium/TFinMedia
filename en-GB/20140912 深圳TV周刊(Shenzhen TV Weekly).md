@@ -1,6 +1,14 @@
 **Shenzhen TV Weekly**  
 2014, No. 32
 
+![Image](/../pics/20140912SZTV001.jpg)
+
+---
+
+*P32*
+
+![Image](/../pics/20140912SZTV002.jpg)
+
 Generation Show  
 21:20, 13rd Sept.(Sat.) on Shenzhen TV
 
@@ -18,6 +26,12 @@ On 28th Aug., at the shooting site of "Generation Show", we saw their overwhelmi
 "The world is yours, as well as ours, but in the last analysis, it is yours!"
 
 > Written by ZHANG Miao(张淼)
+
+---
+
+*P33*
+
+![Image](/../pics/20140912SZTV003.jpg)
 
 ## Cute, Animated, Positive
 **Gained Popularity in the "bit world"**
@@ -68,6 +82,14 @@ The fans of TFBOYS were often called "mum fans".
 To some sense, they are really like TFBOYS's mothers.
 Therefore, their slogan is set to "With Ten-year's Companion, For the Glory of Coronation".
 This is a promise of the fans -- witness the bright future of their idols with ten-year's support and companion.
+
+![Image](/../pics/20140912SZTV004.jpg)
+
+---
+
+*P34*
+
+![Image](/../pics/20140912SZTV005.jpg)
 
 **Vocal & emcee: WANG Yuan**  
 **Experiences:**
@@ -185,6 +207,10 @@ They are senior, it's hard to compare with them, and we don't want to be compare
 And I hope the fans don't, they are examples we can learn from.  
 **K:**
 They are very skilled in dancing, we should learn from them. We won't mind the popularity.
+
+---
+
+*P35*
 
 ## Don't Know the New "Four Sects"?
 **You Are Out**
