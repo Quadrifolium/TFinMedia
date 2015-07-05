@@ -49,7 +49,7 @@ How did they think about the words "xiao xianrou"? Wait and see.
 
 *P14*
 
-![Image](/../pics/20150330SMET001.jpg)![Image](/../pics/20150330SMET002.jpg)![Image](/../pics/20150330SMET003.jpg)
+![Image](/pics/20150330SMET001.jpg)![Image](/pics/20150330SMET002.jpg)![Image](/pics/20150330SMET003.jpg)
 
 **Fighting, Juniors!**
 ## 48 Hours After Release of "Chong'ai"
@@ -214,7 +214,7 @@ I hope that everything goes well to them, that they can always do what they like
 
 ## TF Youthful Interview
 
-![Image](/../pics/20150330SMET004.jpg)![Image](/../pics/20150330SMET005.jpg)
+![Image](/pics/20150330SMET004.jpg)![Image](/pics/20150330SMET005.jpg)
 
 **S.M.E. x TFBOYS**
 
@@ -662,4 +662,4 @@ Just getting taller, that's all.
 
 *P27*
 
-![Image](/../pics/20150330SMET006.jpg)
+![Image](/pics/20150330SMET006.jpg)

@@ -2,7 +2,7 @@
 
 > Scanned by [Mr_馄饨先森](http://weibo.com/ericluoo). View from [this Weibo post](http://weibo.com/1914156097/BjChu3aBK).
 
-![Image](/../pics/20140827MMFD001.jpg)
+![Image](/pics/20140827MMFD001.jpg)
 
 # TFBOYS
 # THE FIRST CHAPTER
@@ -87,4 +87,4 @@ Every leading step is full of unknown hardships, may encounter rumours and preju
 The past chapter cannot be replayed. On the leading road, we hope the time could be faster and faster, to let them perform on the dreaming stage earlier;
 we hope the time could be slower and slower, to make the companionship longer, and longer.
 
-![Image](/../pics/20140827MMFD002.jpg)
+![Image](/pics/20140827MMFD002.jpg)

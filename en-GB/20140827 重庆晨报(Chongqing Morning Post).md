@@ -5,7 +5,7 @@ Entertainment
 **Be Rational, Not Overdosed**
 # TFBOYS Showed in Chongqing, Fans Acted Fair
 
-![Image](/../pics/20140827CQMP001.jpg)  
+![Image](/pics/20140827CQMP001.jpg)  
 Yesterday, in front of "Guo Tai Arts Center"(国泰艺术中心), many TFBOYS fans were waiting, hoping to see their idols.  
 Photographed by HU Jie(胡杰)
 

@@ -4,7 +4,7 @@
 # YANG Mi Record Video to TFBOYS
 # "Be In Love A Bit Later"
 
-![Image](/../pics/20150414SZTM001.jpg)  
+![Image](/pics/20150414SZTM001.jpg)  
 The three boys of TFBOYS were the biggest winners, both in popularity and awards.
 
 > Written by WANG Zhou-meng-yu(王周梦昱)

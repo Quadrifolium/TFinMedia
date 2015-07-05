@@ -9,13 +9,13 @@
 **TFBOYS WANG Jun-kai Performed in School, Caused Sensation**
 
 
-![Image](/../pics/20150201CQMP001.jpg)
+![Image](/pics/20150201CQMP001.jpg)
 
-![Image](/../pics/20150201CQMP002.jpg)
+![Image](/pics/20150201CQMP002.jpg)
 
-![Image](/../pics/20150201CQMP003.jpg)
+![Image](/pics/20150201CQMP003.jpg)
 
-![Image](/../pics/20150201CQMP004.jpg)  
+![Image](/pics/20150201CQMP004.jpg)  
 Yesterday, at the Teacher's New Year Art Performance of Chongqing "Ba Zhong"(八中, No.8 Secondary School), WANG Jun-kai's appearance pushed the air to a new high.
 TFBOYS formed with him and two other students are one of the most popular group at present.  
 Photographed by GAN Xia-yi(甘侠义)
@@ -24,7 +24,7 @@ Photographed by GAN Xia-yi(甘侠义)
 
 *P03*
 
-![Image](/../pics/20150201CQMP005.jpg)  
+![Image](/pics/20150201CQMP005.jpg)  
 Yesterday, WANG Jun-kai (in black) performed at the Teacher's New Year Art Performance of Chongqing "Ba Zhong".  
 Photographed by GAN Xia-yi(甘侠义)
 

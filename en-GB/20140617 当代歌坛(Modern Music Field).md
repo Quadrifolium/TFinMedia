@@ -34,7 +34,7 @@ The boys in that ages reflect the happy memories in our heart, softly and firmly
 
 *P032*
 
-![Image](/../pics/20140617MMFD002.jpg)
+![Image](/pics/20140617MMFD002.jpg)
 
 ## Go to Work by Subway
 
@@ -105,9 +105,9 @@ They had been criticized about voice-changing, singing skills, and dance moves, 
 They were struggling for changing others' opinions, their sensitiveness was a typical teenagers' mind.
 And this led to their gingerliness.
 
-![Image](/../pics/20140617MMFD003.jpg)
+![Image](/pics/20140617MMFD003.jpg)
 
-![Image](/../pics/20140617MMFD004.jpg)
+![Image](/pics/20140617MMFD004.jpg)
 
 ---
 
@@ -143,9 +143,9 @@ They turned around in a line facing the recording camera, breathed out a deep br
 Cohesion usually accumulates under pressure, men are grown after overcoming obstacles.
 So does the tacit understandings among the boys.
 
-![Image](/../pics/20140617MMFD005.jpg)
+![Image](/pics/20140617MMFD005.jpg)
 
-![Image](/../pics/20140617MMFD006.jpg)
+![Image](/pics/20140617MMFD006.jpg)
 
 ---
 
@@ -163,9 +163,9 @@ But those people forgot that even "phenomenal idols" had faded for a long time.
 Those who question about "why they got fame" just cannot face the power of the new generation.
 More new faces will emerge in this era, so we, as the riders of the tides in this field, choose to face the "possibility" on TFBOYS, choose to face the new powers, choose to have a try, choose to believe in.
 
-![Image](/../pics/20140617MMFD007.jpg)
+![Image](/pics/20140617MMFD007.jpg)
 
-![Image](/../pics/20140617MMFD008.jpg)
+![Image](/pics/20140617MMFD008.jpg)
 
 ## "Meng"-Style Update
 
@@ -234,4 +234,4 @@ He is always striving with the thought of being together with his companions.
 
 ---
 
-![Back cover](/../pics/20140617MMFD001.jpg)
+![Back cover](/pics/20140617MMFD001.jpg)

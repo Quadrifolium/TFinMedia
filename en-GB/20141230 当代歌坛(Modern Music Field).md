@@ -17,7 +17,7 @@ The calm and easy manner is more tolerable than many adults, which is a part of 
 "Make no compromises on the way, a true man has nothing to lose".
 Though young, they are already responsible young men.
 
-![Image](/../pics/20141230MMFD001.jpg)
+![Image](/pics/20141230MMFD001.jpg)
 
 # TFBOYS, In the Name of Youth
 
@@ -42,7 +42,7 @@ When the storm of TFBOYS continues this winter, when the boys are growing like a
 
 *P049*
 
-![Image](/../pics/20141230MMFD002.jpg)
+![Image](/pics/20141230MMFD002.jpg)
 
 **WANG Jun-kai**
 ### Cultivates Youth
@@ -69,7 +69,7 @@ Bearing pressures beyond imagination, but sticking firmly and aspiring clear goa
 
 *P50*
 
-![Image](/../pics/20141230MMFD003.jpg)
+![Image](/pics/20141230MMFD003.jpg)
 
 **WANG Yuan**
 ### Lucky Symbol
@@ -97,7 +97,7 @@ He is like an angel, a lucky symbol, one can get from him that "youth will never
 
 *P51*
 
-![Image](/../pics/20141230MMFD004.jpg)
+![Image](/pics/20141230MMFD004.jpg)
 
 **YI Yang-qian-xi**
 ### In the Name of Faith
