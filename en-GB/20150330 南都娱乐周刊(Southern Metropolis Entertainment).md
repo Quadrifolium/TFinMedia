@@ -14,7 +14,7 @@
 
 *P12*
 
-**COVER**
+![Image](/pics/20150330SMET001.jpg)
 
 # TFBOYS
 ## Not "Xiao Xianrou", We Are "Teens"
@@ -49,7 +49,7 @@ How did they think about the words "xiao xianrou"? Wait and see.
 
 *P14*
 
-![Image](/pics/20150330SMET001.jpg)![Image](/pics/20150330SMET002.jpg)![Image](/pics/20150330SMET003.jpg)
+![Image](/pics/20150330SMET002.jpg)![Image](/pics/20150330SMET003.jpg)![Image](/pics/20150330SMET004.jpg)
 
 **Fighting, Juniors!**
 ## 48 Hours After Release of "Chong'ai"
@@ -106,11 +106,15 @@ Under the operation of "zero commercial performances + sell of peripheral commod
 
 *P15*
 
+![Image](/pics/20150330SMET005.jpg)
+
 **If I went back to the ancient time, I should have kungfu, use Ch'ing kung to walk around, or it's too tired to walk on feet~**
 
 ---
 
 *P16*
+
+![Image](/pics/20150330SMET006.jpg)
 
 **TF Phased Exam**
 ## The Score of Youth
@@ -135,6 +139,8 @@ If we take one year as a semester of the "ten-year promise", what will be the sc
 ---
 
 *P18*
+
+![Image](/pics/20150330SMET007.jpg)
 
 **I want to travel back to Tang Dynasty, because I must be the smartest, they would worship me as a deity, firms would give me a lot of money, and a lot of food~**
 
@@ -214,7 +220,7 @@ I hope that everything goes well to them, that they can always do what they like
 
 ## TF Youthful Interview
 
-![Image](/pics/20150330SMET004.jpg)![Image](/pics/20150330SMET005.jpg)
+![Image](/pics/20150330SMET008.jpg)![Image](/pics/20150330SMET009.jpg)
 
 **S.M.E. x TFBOYS**
 
@@ -313,6 +319,8 @@ Yes, that's it.
 
 *P21*
 
+![Image](/pics/20150330SMET010.jpg)
+
 **I want to travel back to the war against aggression, to kill invaders with bare hands!**  
 *[A meme on Chinese social networks, which describes an exaggerated scene in a drama themed at resisting aggression in World War II.]*
 
@@ -320,7 +328,7 @@ Yes, that's it.
 
 *P22*
 
-N/A
+![Image](/pics/20150330SMET011.jpg)
 
 ---
 
@@ -426,6 +434,8 @@ Just imagine, Tang Dynasty is the most prosperous time in ancient China, firms w
 
 *P24-25*
 
+![Image](/pics/20150330SMET012.jpg)
+
 **About Idol, Love, and Grown-up**
 #### "Being grown-up is the ability to live alone."
 
@@ -522,6 +532,8 @@ I'm happy with any senior...
 Um... YANG Mi.
 (Okay, we'll convey it to her.)
 And Jay.
+
+![Image](/pics/20150330SMET013.jpg)
 
 ---
 
@@ -662,4 +674,4 @@ Just getting taller, that's all.
 
 *P27*
 
-![Image](/pics/20150330SMET006.jpg)
+![Image](/pics/20150330SMET014.jpg)
