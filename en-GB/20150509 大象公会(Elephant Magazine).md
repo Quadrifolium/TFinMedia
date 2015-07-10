@@ -172,7 +172,7 @@ On the entire web
 **Male:** 9%  
 **Female:** 91%
 
-(The survey result by Sina Entertainment.)
+(Surveyed by Sina Entertainment.)
 
 More 1990s and 2000s means more Internet natives.
 According to the survey of Internet usage of 1990s by Baidu, 1990s used the Internet for 7.53 years on average, spends 11.45 hours on it each day, of which 60.52% of the access are from mobiles.

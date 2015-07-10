@@ -21,8 +21,8 @@ There were little chaos among thousands of waiting people, ticket scalpers from 
 It seems that the fans of the positive and optimistic TFBOYS should not be overlooked, their appearance is a plus to their idols.
 
 **Thousands Waiting**  
-**"Zhanzi" Ran For Order**
-*[站子, organisations set under fans own accords]*
+**"Zhanzi" Ran For Order**  
+*["Zhanzi", 站子, organisations set under fans own accords]*
 
 Idol group TFBOYS held a meeting at "Guo Tai Art Center"(国泰艺术中心) as the ambassadors of a brand yesterday afternoon.
 Unlike a chaos imagined, thousands of fans gathered in the plaza, but the scattered crowd was not disordered

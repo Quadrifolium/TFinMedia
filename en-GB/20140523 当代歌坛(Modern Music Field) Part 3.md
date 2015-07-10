@@ -14,7 +14,7 @@ They are like blooming flowers of different colours, form an attracting landscap
 And the base of the scenery is no doubt clovers which stands for lucky.
 There's no need to seize happiness around, accompany is the utmost happiness.
 
-![Image](../pics/20140523MMFD006.jpg)
+![Image](/pics/20140523MMFD006.jpg)
 
 **WANG Jun-kai**
 
@@ -70,7 +70,7 @@ N/A
 
 *P29*
 
-![Image](../pics/20140523MMFD007.jpg)
+![Image](/pics/20140523MMFD007.jpg)
 
 **WANG Yuan**
 
@@ -118,7 +118,7 @@ These had been ridiculed by Karry many times as "only (children's) cartoons suit
 
 *P30*
 
-![Image](../pics/20140523MMFD008.jpg)
+![Image](/pics/20140523MMFD008.jpg)
 
 **YI Yang-qian-xi**
 
@@ -293,7 +293,7 @@ If you can look ten years back
 What do you wish you were doing
 
 > I am WANG Jun-kai  
-I wish to be, in ten years’ time  
+I wish to be, in ten years' time  
 A great singer  
 Someone see me as wasting time  
 But I'm only practising when others are playing  

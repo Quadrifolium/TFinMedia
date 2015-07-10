@@ -6,7 +6,7 @@
 
 # TFBOYS
 ## Not "Xiao Xianrou", We Are "Teens"
-*["Xiao Xianrou", 小鲜肉, literally: "Fresh Bodies")]*
+*["Xiao Xianrou", 小鲜肉, literally: "Fresh Bodies", a buzz word in Chinese social networks)]*
 
 **Record of Theme Song of Cartoon "Menghuan Xiyou 2"(梦幻西游2, literally: "Fantasy Journey to the West 2"), with Amusing & Cute Conversations**
 

@@ -11,7 +11,7 @@
 
 Three boys under fifteen were pushed to the dazzling limelight far before they know the rules.
 They have a "ten-year promise" with fans, but it's hard for them even to imagine the scene when they are twenty, only know that they will be more -- handsome!  
-*[This paragraph appears in [the mobile page](http://xw.qq.com/iphone/m/instar/7e8d7e5ccbddfd9576be61e3ab86aa73.html)]*
+*[This paragraph appears in [the mobile page](http://xw.qq.com/iphone/m/instar/7e8d7e5ccbddfd9576be61e3ab86aa73.html).]*
 
 ![Image](http://img1.gtimg.com/ninja/0/ninja141992902621247.jpg)
 

@@ -13,18 +13,18 @@ Beyond the popularity, there comes the time of Internet stars and reshaping of t
 
 (Photos herein were provided by interviewees, except specified ones.)
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF86yZBcnyktWt0ovpvGTRtDECsNtSVKMLlLdUMZzOJEmCtHQBF4hbNjw/640?wx_fmt=jpeg&wxfrom=5)  
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGODZ5WkJjbnlrdFd0MG92cHZHVFJ0REVDc050U1ZLTUxsTGRVTVp6T0pFbUN0SFFCRjRoYk5qdy8wP3d4X2ZtdD1qcGVnK2h0dHA6Ly9tcC53ZWl4aW4ucXEuY29tL3M/X19iaXo9TWpNNU16TXlNREUzTXc9PSZtaWQ9MjA2NTA4MDYxJmlkeD0xJnNuPTExMmJkNDAwZWQzZGM3Y2MyYmNkNzZkNGRmMjNmNzRh.jpg)  
 TFBOYS, formed by three boys aged only 15 on average, is now one of the most popular groups in mainland China.
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8hydFQRyT29JWiamxurA2jlWTwZBDp44nf9qAqeg0ukrcFJPwC8CDjXw/640?wxfrom=5)  
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOGh5ZEZRUnlUMjlKV2lhbXh1ckEyamxXVHdaQkRwNDRuZjlxQXFlZzB1a3JjRkpQd0M4Q0RqWHcvNjQwK2h0dHA6Ly9tcC53ZWl4aW4ucXEuY29tL3M/X19iaXo9TWpNNU16TXlNREUzTXc9PSZtaWQ9MjA2NTA4MDYxJmlkeD0xJnNuPTExMmJkNDAwZWQzZGM3Y2MyYmNkNzZkNGRmMjNmNzRh.jpg)  
 WANG Jun-kai  
 Leader, born on 21st Sept. 1999 in Chongqing, joined TF Family at the end of 2010 as a trainee.
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8a5phBk2xkDIn0ZK8kSNvPdUHX5PJQQ920Tc7Z2BTMiaIjl3MtlxOV1Q/640?wxfrom=5)  
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOGE1cGhCazJ4a0RJbjBaSzhrU052UGRVSFg1UEpRUTkyMFRjN1oyQlRNaWFJamwzTXRseE9WMVEvNjQwK2h0dHA6Ly9tcC53ZWl4aW4ucXEuY29tL3M/X19iaXo9TWpNNU16TXlNREUzTXc9PSZtaWQ9MjA2NTA4MDYxJmlkeD0xJnNuPTExMmJkNDAwZWQzZGM3Y2MyYmNkNzZkNGRmMjNmNzRh.jpg)  
 WANG Yuan  
 Member, born on 8th Nov. 2000 in Chongqing, joined TF Family at the end of 2011 as a trainee.
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8pEbd3qBjMCF3eMGSmUErqbKAD42rZc0G69TSKXJj8r4riaN9AE1ibPUA/640?wxfrom=5)  
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOHBFYmQzcUJqTUNGM2VNR1NtVUVycWJLQUQ0MnJaYzBHNjlUU0tYSmo4cjRyaWFOOUFFMWliUFVBLzY0MCtodHRwOi8vbXAud2VpeGluLnFxLmNvbS9zP19fYml6PU1qTTVNek15TURFM013PT0mbWlkPTIwNjUwODA2MSZpZHg9MSZzbj0xMTJiZDQwMGVkM2RjN2NjMmJjZDc2ZDRkZjIzZjc0YQ==.jpg)  
 YI Yang-qian-xi  
 Member, born on 28th Nov. 2000 in Huaihua, Hunan, debuted with WANG Jun-kai and WANG Yuan as TFBOYS in 2013.
 
@@ -179,7 +179,7 @@ But history has no hypothesis.
 A leader of Time Fengjun regarded the award as a chance for the fans of TFBOYS to break their power out.
 "The early fans of TFBOYS are accumulated from multiple platforms, the ceremony released the power of the fans."
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8g6J161vHRZfaZYJ197TPebRIWjHVJ56cBHJfEossIXw8ZkLMSNmKOg/640?wx_fmt=jpeg&wxfrom=5)  
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOGc2SjE2MXZIUlpmYVpZSjE5N1RQZWJSSVdqSFZKNTZjQkhKZkVvc3NJWHc4WmtMTVNObUtPZy8wP3d4X2ZtdD1qcGVnK2h0dHA6Ly9tcC53ZWl4aW4ucXEuY29tL3M/X19iaXo9TWpNNU16TXlNREUzTXc9PSZtaWQ9MjA2NTA4MDYxJmlkeD0xJnNuPTExMmJkNDAwZWQzZGM3Y2MyYmNkNzZkNGRmMjNmNzRh.jpg)  
 Photograph by WANG Pan(王攀)
 
 However, __sometimes at present, ZHANG Dou still thinks the popularity of TFBOYS inconceivable__.
@@ -276,9 +276,9 @@ In less than a year, TFBOYS became a popular teen group in China, its popularity
 
 ③ Maximise the power of the web with a team of post-1990s
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8KtNE75TribUbPicmw68KfK2gEZKRIxfyCnTjaHiaJX0xxxSSRGoOMftHg/640?wx_fmt=jpeg&wxfrom=5)
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOEt0TkU3NVRyaWJVYlBpY213NjhLZksyZ0VaS1JJeGZ5Q25UamFIaWFKWDB4eHhTU1JHb09NZnRIZy8wP3d4X2ZtdD1qcGVnK2h0dHA6Ly9tcC53ZWl4aW4ucXEuY29tL3M/X19iaXo9TWpNNU16TXlNREUzTXc9PSZtaWQ9MjA2NTA4MDYxJmlkeD0xJnNuPTExMmJkNDAwZWQzZGM3Y2MyYmNkNzZkNGRmMjNmNzRh.jpg)
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF87O4DYPUzl78S6CmmncES7KE6o8DtkOODP36cMhicH8OibUBYRRftAe4Q/640?wx_fmt=jpeg&wxfrom=5)
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGODdPNERZUFV6bDc4UzZDbW1uY0VTN0tFNm84RHRrT09EUDM2Y01oaWNIOE9pYlVCWVJSZnRBZTRRLzA/d3hfZm10PWpwZWcraHR0cDovL21wLndlaXhpbi5xcS5jb20vcz9fX2Jpej1Nak01TXpNeU1ERTNNdz09Jm1pZD0yMDY1MDgwNjEmaWR4PTEmc249MTEyYmQ0MDBlZDNkYzdjYzJiY2Q3NmQ0ZGYyM2Y3NGE=.jpg)
 
 __TFBOYS positions itself as exuberant and positive, Time Fengjun and Yinyuetai promotes TFBOYS in such a position as the principal line on the web.
 While many members of the execution team are post-1990s.__
@@ -384,9 +384,9 @@ Daphne, who attended almost all the off-line events in Beijing from 2013, though
 Now, Time Fengjun is planning to set up an official fan organisation to make the off-line events more targeted.
 The agency also consulted overseas experiences, was preparing for brand-new off-line contacts.
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8B0t1hY1en05JNy5582zdF6AMicIxMibEq2BGF7nGnKMQYL6oz5zyaK1Q/640?wx_fmt=jpeg&wxfrom=5)
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOEIwdDFoWTFlbjA1Sk55NTU4MnpkRjZBTWljSXhNaWJFcTJCR0Y3bkduS01RWUw2b3o1enlhSzFRLzA/d3hfZm10PWpwZWcraHR0cDovL21wLndlaXhpbi5xcS5jb20vcz9fX2Jpej1Nak01TXpNeU1ERTNNdz09Jm1pZD0yMDY1MDgwNjEmaWR4PTEmc249MTEyYmQ0MDBlZDNkYzdjYzJiY2Q3NmQ0ZGYyM2Y3NGE=.jpg)
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8nphyhmoDD5fGsupWQDCzASQCjVSUk3mOTl0aaLu7wYf01FkPx7t0YQ/640?wx_fmt=jpeg&wxfrom=5)  
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOG5waHlobW9ERDVmR3N1cFdRREN6QVNRQ2pWU1VrM21PVGwwYWFMdTd3WWYwMUZrUHg3dDBZUS8wP3d4X2ZtdD1qcGVnK2h0dHA6Ly9tcC53ZWl4aW4ucXEuY29tL3M/X19iaXo9TWpNNU16TXlNREUzTXc9PSZtaWQ9MjA2NTA4MDYxJmlkeD0xJnNuPTExMmJkNDAwZWQzZGM3Y2MyYmNkNzZkNGRmMjNmNzRh.jpg)  
 Targeted Internet skills brought a huge number of crazy fans.
 
 ### "As an elder sister, saving money for brother's marriage is perfectly justified!"
@@ -423,7 +423,7 @@ A cameraperson who had attended a shoot of TFBOYS said, during the shoot of swim
 
 Ha-ni Xiao-xiong had surveyed 1,000 fans who lived around China in her fan club, under the question of "the first impression of TFBOYS", over 700 fans filled with the word "cute" or "meng".
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8oVKib6FBia8rFKnInNm443qqiaynTOQzPn4582qCxzQbYV4icQneiaalUYA/640?wx_fmt=png&wxfrom=5)  
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOG9WS2liNkZCaWE4ckZLbkluTm00NDNxcWlheW5UT1F6UG40NTgycUN4elFiWVY0aWNRbmVpYWFsVVlBLzA/d3hfZm10PXBuZytodHRwOi8vbXAud2VpeGluLnFxLmNvbS9zP19fYml6PU1qTTVNek15TURFM013PT0mbWlkPTIwNjUwODA2MSZpZHg9MSZzbj0xMTJiZDQwMGVkM2RjN2NjMmJjZDc2ZDRkZjIzZjc0YQ==.jpg)  
 *[Information on the image:]*  
 Who are the fans of TFBOYS
 
@@ -484,7 +484,7 @@ the fans get the star's actions from the Internet at any time, and react off-lin
 Fans have prepaid in a café near WANG Jun-kai's school for him to have dinner.
 The places TFBOYS live and study in are very familiar to "Clovers", most "Clovers" who tripped to Chongqing would list WANG Yuan's and WANG Jun-kai's schools as a must.
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF8xTZZJ37siag5dCaSUQMoqISmduYygNB7tw8FoYhusNLVfVzDvzicUaxw/640?wx_fmt=jpeg&wxfrom=5)
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGOHhUWlpKMzdzaWFnNWRDYVNVUU1vcUlTbWR1WXlnTkI3dHc4Rm9ZaHVzTkxWZlZ6RHZ6aWNVYXh3LzA/d3hfZm10PWpwZWcraHR0cDovL21wLndlaXhpbi5xcS5jb20vcz9fX2Jpej1Nak01TXpNeU1ERTNNdz09Jm1pZD0yMDY1MDgwNjEmaWR4PTEmc249MTEyYmQ0MDBlZDNkYzdjYzJiY2Q3NmQ0ZGYyM2Y3NGE=.jpg)
 
 People compare TFBOYS with AKB48 in Japan in cultivation mode.
 The hottest girl group made completely by Akimoto Yasushi(秋元康)(Japanese scriptwriter, lyricist, writer, and director), aimed at "idols at your side" ["idols you can meet face-to-face"], the members perform in exclusive theatres nearly every day.
@@ -527,7 +527,7 @@ The result showed that the most popular stars for post-1990s are TFBOYS and EXO.
 To be prudent, Mengniu carried out a survey in show biz, TFBOYS received much public praise,
 "they are young, exuberant, and positive, and are very suitable for our product."
 
-### Make a Duplicated TFBOYS?
+### To Make a Duplicated TFBOYS?
 
 In the views from Time Fengjun, the development of TFBOYS was contingent, there was no successful experiences in China before, and it would be difficult to duplicate an idol group following the same path.
 But the leader admitted that the success of TFBOYS proved that the type of teen idols is now in Chinese market.
@@ -593,7 +593,7 @@ If such fault appeared on TFBOYS, it would be lethal.
 
 Even if the behaviour's not considered, the identities of "group" and "teen idols" make the future of TFBOYS uncertain.
 
-![Image](http://mmbiz.qpic.cn/mmbiz/nUuqEgZPj01gvFtSbuBiboiclySRFYZKF81fEgf6TetT9nHgfYqicqMNl4abErmITzKibwusCtRsNicBLh37ewWoE5Q/640?wx_fmt=jpeg&wxfrom=5)
+![Image](http://r3.sinaimg.cn/201505/000/000/aHR0cDovL21tYml6LnFwaWMuY24vbW1iaXovblV1cUVnWlBqMDFndkZ0U2J1Qmlib2ljbHlTUkZZWktGODFmRWdmNlRldFQ5bkhnZllxaWNxTU5sNGFiRXJtSVR6S2lid3VzQ3RSc05pY0JMaDM3ZXdXb0U1US8wP3d4X2ZtdD1qcGVnK2h0dHA6Ly9tcC53ZWl4aW4ucXEuY29tL3M/X19iaXo9TWpNNU16TXlNREUzTXc9PSZtaWQ9MjA2NTA4MDYxJmlkeD0xJnNuPTExMmJkNDAwZWQzZGM3Y2MyYmNkNzZkNGRmMjNmNzRh.jpg)
 
 Many insiders compare TFBOYS with the once famous "Xiao Hu Dui"(小虎队, The Little Tigers).
 The group of Nicky Wu(吴奇隆), Julian Chen(陈志朋), and Alec Su(苏有朋) was the fastest developing group in Asia from their debut in 1988.

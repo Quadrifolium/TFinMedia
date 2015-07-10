@@ -1,6 +1,6 @@
 **Modern Music Field(当代歌坛) No.597**
 
-![Image](../pics/20140523MMFD001.jpg)
+![Image](/pics/20140523MMFD001.jpg)
 
 ---
 
@@ -109,7 +109,7 @@ Those who are concerned about fashion and vogue may doubt about and be surprised
 There's no doubt that they are too young and weak in strength, but just because they are young, there will be boundless possibilities in their future.
 The rookies are not just specialized in fearlessness -- when they are exploring the world in curious, when they are chasing their dreams in vigour, you will probably be infected and stretch out your hand to help, due to their pureness and youthfulness.
 
-![Image](../pics/20140523MMFD002.jpg)
+![Image](/pics/20140523MMFD002.jpg)
 
 ---
 
@@ -168,7 +168,7 @@ I was greatly impressed, and was grateful to all the fans there.
 **Q:**
 What's your feeling about "the price of popularity"?  
 **K:**
-I should go home at noon after class, but I can’t (T T).
+I should go home at noon after class, but I can't (T T).
 Fans are always following, even on the metro. I can do nothing but change my route.  
 **R:**
 My school is open to outsiders, many fans come to see me whenever I'm in or after class.

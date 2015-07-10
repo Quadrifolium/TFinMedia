@@ -156,7 +156,7 @@ Years later, after grow up, they will debut as a group.
 
 **Voices**
 
-## Careless about Fame, Do the Favourite
+## Be Careless about Fame, Do the Favourite
 
 For times, two little "zheng tai" raised many people's concern on well-known video site 56.com.
 The two boys sang affectionately, acted calmly in front of the camera.

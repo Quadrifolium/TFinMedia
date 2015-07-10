@@ -187,6 +187,7 @@ My suggestion to them is, study hard and arrange time orderly.
 Ah, and, be in love a bit later.
 
 **Q:**
+Do it too early is not recommended, but the sisters have a question to WANG Yuan, will you consider to be in relationship with an elder sister when grown up?  
 **R:**
 I don't consider the matter at all at present, I'm only concerned about how to be taller (smiled), how to improve my skills in singing, dancing, and others.
 

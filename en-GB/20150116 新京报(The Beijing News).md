@@ -337,7 +337,7 @@ G-Dragon and 2NE1.
 **R:**
 I like JJ Lin(林俊杰), his voice is very pure and clear.
 
-**What will you do if you have a lot of money?**
+**What will you do if you have a lot of money?**  
 **R:**
 To drive excavator[a meme on Chinese social networks]?
 Or to sign a contract of fish-pond[a meme on Chinese social networks], hahaha.
