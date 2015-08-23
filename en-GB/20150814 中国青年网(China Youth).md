@@ -2,7 +2,7 @@
 > Posted by CYLC(Communist Youth League of China, 共青团中央) on [this Weibo post]( http://weibo.com/3937348351/CvLlTD6kF).
 
 ## TFBOYS as Ambassadors of "Sunny Posting": Don't have mouse and keyboard overtake your mind
-*[Sunny Posting, 阳光跟帖]*
+*["Sunny Posting", “阳光跟帖”]*
 
 ![Image](http://news.youth.cn/gn/201508/W020150814495697067529.jpg)  
 As the ambassadors of "Sunny Posting", TFBOYS read out the proposal in the event, appealing for rational commenting, civilised posting, and friendly reply on the web, for not to have mouse and keyboard overtake one's mind. (Photographed by WEI Gong-chen(隗功臣))
