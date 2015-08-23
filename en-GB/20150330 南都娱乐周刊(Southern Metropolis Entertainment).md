@@ -179,9 +179,9 @@ Because of the school study and activities, they were always tired when recordin
 He used many methods "like telling jokes, or encourage them badly."
 He also found their improvement, "they always came here after other work, and were very tired, but they were very serious and hard-working in recording, that's quite difficult for children."
 
-- Reviewers: XIE Na, LUO Xin(producer of "Happy Camp"), and YUAN Qi(袁琪)(director of "Day Day Up"(天天向上))
+- Reviewers: XIE Na, LUO Xin(producer of "Happy Camp"), and YUAN Qi(袁琪)(director of "Tian Tian Xiang Shang"(天天向上))
 
-TFBOYS had been invited to the stage of "Day Day Up" with Danish Ambassador to China as delegates of Chinese youths.
+TFBOYS had been invited to the stage of "Tian Tian Xiang Shang" with Danish Ambassador to China as delegates of Chinese youths.
 YUAN Qi, a director of the programme, said, the agency gave the director group presents like hot pot condiments, the boys were modest and courteous,
 "the most impressive one was YI Yang-qian-xi, he's conserved and less talkative, but he would listen to you carefully, remember everything you've said."
 In the preparation, the director asked if he could present a calligraphy work to the ambassador, but the idea didn't carry out on stage due to interim adjustments.

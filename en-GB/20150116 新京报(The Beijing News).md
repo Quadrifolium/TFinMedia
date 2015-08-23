@@ -9,7 +9,7 @@ Our journalist interviewed the members of TFBOYS, the boss of the agency, and th
 ![Image](http://img.tbnimg.com/epaper/20150116/C10/02AD30FB3963.jpg)
 
 ![Image](http://img.tbnimg.com/epaper/20150116/C10/02F030663926.jpg)  
-TFBOYS at "Day Day Up"(天天向上), YI Yang-qian-xi was writing Chinese calligraphy.
+TFBOYS at "Tian Tian Xiang Shang"(天天向上), YI Yang-qian-xi was writing Chinese calligraphy.
 
 ![Image](http://img.tbnimg.com/epaper/20150116/C10/02C8307439C3.jpg)  
 Fans spent heavily on edifice ad to celebrate WANG Jun-kai's birthday.
@@ -344,7 +344,7 @@ Or to sign a contract of fish-pond[a meme on Chinese social networks], hahaha.
 Well, I would travel around with my family, like Provence, like the places often mentioned in Korean dramas.  
 **K:**
 I want to travel to Denmark with my family.
-We met guests from Denmark in the recording of "Day Day Up", I was attracted by the people and the landscape there.  
+We met guests from Denmark in the recording of "Tian Tian Xiang Shang", I was attracted by the people and the landscape there.  
 **J:**
 To travel around the world with my family.
 We don't have much time to travel before, it's a pity.

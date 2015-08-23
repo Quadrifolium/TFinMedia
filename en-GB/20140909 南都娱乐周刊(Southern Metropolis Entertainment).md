@@ -53,7 +53,7 @@ That's true, "fame is a bubble," this was also what Yuna often said.
 
 Among them, the leader WANG Jun-kai was the first to be selected by the agency "Time Fengjun".
 As the only one born before millennium(born in 1999), he was sometimes joked at by the other two as an "old man".
-YUAN Qi(袁琪), a director of "Day Day Up"(天天向上), told us, "WANG Jun-kai has a nature of being a star, you can tell the quality from the cover videos years ago."
+YUAN Qi(袁琪), a director of "Tian Tian Xiang Shang"(天天向上), told us, "WANG Jun-kai has a nature of being a star, you can tell the quality from the cover videos years ago."
 The youngest member YI Yang-qian-xi was born in Hunan Hongjiang, and went to Beijing at two.
 He was skilled at dance, magic show, "Bian Lian"(变脸, literally: "face-changing", a Chinese dramatic art of Sichuan opera), and so on. He was also a "xue ba"(学霸, one who's score ranks top in class or school) who once ranked the top at school, and the fans called him "Qian Zong"(千总, literally: "Boss Qian").
 At the backstage, he was always playing his iPad, only after received a rigid fan printed with he and his younger brother from a fan did he start playing childishly.
@@ -91,7 +91,7 @@ On the stage, even domineering LI Xiang(李湘) treat them preferentially."
 He remembered this clearly.
 
 "They are fairly 'legitimate' in Chinese traditional view, everyone who have contact with them would like them."
-YUAN Qi, a director of "Day Day Up" said, she was once puzzled about such a phenomenon, thought there should be "mercenaries", otherwise how could three boys without works and promotion be popular?
+YUAN Qi, a director of "Tian Tian Xiang Shang" said, she was once puzzled about such a phenomenon, thought there should be "mercenaries", otherwise how could three boys without works and promotion be popular?
 "Later, a friend from 'Happy Camp' told me, they were indeed doing homework at the backstage.
 Generally, the script-checking was usually done in the guest's hotel room.
 But the director could not get there that day, the boys went to the office instead, checked the script for several times.

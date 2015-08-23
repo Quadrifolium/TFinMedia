@@ -265,7 +265,7 @@ The most important factor of WANG Jun-kai, WANG Yuan, and YI Yang-qian-xi's bein
 
 Many insiders compare TFBOYS with RTA, which was a teen group debuted around 2010.
 The members of RTA were also handsome boys and talented in music and dance.
-Hunan TV played an utterly important role in the debut and growing of RTA, it can be said that RTA was born in "Day Day Up"(天天向上) of Hunan TV, and gathered much popularity through "Shaonian Chengzhang Shuo"(少年成长说) [It was called "Shaonian Jinhualun"(少年进化论, literally: "Evolution of Teenagers") later] of Hunan TV.
+Hunan TV played an utterly important role in the debut and growing of RTA, it can be said that RTA was born in "Tian Tian Xiang Shang"(天天向上) of Hunan TV, and gathered much popularity through "Shaonian Chengzhang Shuo"(少年成长说) [It was called "Shaonian Jinhualun"(少年进化论, literally: "Evolution of Teenagers") later] of Hunan TV.
 
 This disbanded group differed from TFBOYS that it promoted via traditional TV stations, not the Internet.
 "From 2010 to 2013, RTA appeared on many programmes, but it excessively relied on TV, had no actions on the Internet."

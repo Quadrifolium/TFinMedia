@@ -30,7 +30,7 @@ the top variety show "Happy Camp"(快乐大本营) made their first show special
 A teen idol group made in China, hotter than Japanese and Korean stars was born, "TF phenomenon" became an enduring cultural trend, showed powerful strength and popularity in the performance in new media and big data.
 
 Three boys' pure and young looks, fresh voices and dynamic dances, positive appearances and optimistic personalities arouse the power of energetic youth in people's hearts.
-The good sale of the new album and the wide spread of "The Manual of Youth" and "The First Lesson at School"(开学第一课) was the recognition from the public, while variety shows like "Day Day Up"(天天向上) revealed the boys' warm heart and their sense on stage.
+The good sale of the new album and the wide spread of "The Manual of Youth" and "The First Lesson at School"(开学第一课) was the recognition from the public, while variety shows like "Tian Tian Xiang Shang"(天天向上) revealed the boys' warm heart and their sense on stage.
 "Be good in school study + handsome and charming + have versatile skills" also accords with the mainstream value for "good teenagers", avoids being fallen into the bias for "child stars" or "teen idol groups".
 They are good-looking, skilled, and hard-working, their road is broadening, their future will be bright and rich-decorated.
 
