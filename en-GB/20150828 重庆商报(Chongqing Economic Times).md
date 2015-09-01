@@ -3,7 +3,7 @@
 **Composed 7 songs in 2 years, multi-role of the band**
 ## Will the 14-year-old be the next TFBOYS?
 
-![image](http://e.chinacqsb.com/res/1/20150828/92411440695936984.jpg)  
+![Image](http://e.chinacqsb.com/res/1/20150828/92411440695936984.jpg)  
 NI Zi-yu(倪子鱼)(front) rehearsing with the band. (Photographed by WU Shan(吴珊))
 
 > Written by ZHENG Xu-peng(郑旭鹏) the chief correspondent, and RAO Fang-jing(饶方婧)

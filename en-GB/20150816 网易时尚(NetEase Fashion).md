@@ -3,9 +3,9 @@
 **Exclusive**
 ## Costume designer behind TFBOYS
 
-![image](http://img1.cache.netease.com/lady/2015/8/16/2015081606201946cc7_550.jpg)
+![Image](http://img1.cache.netease.com/lady/2015/8/16/2015081606201946cc7_550.jpg)
 
-![image](http://img4.cache.netease.com/lady/2015/8/16/201508160620210682b_550.jpg)
+![Image](http://img4.cache.netease.com/lady/2015/8/16/201508160620210682b_550.jpg)
 
 > Interviewed and written by PEI Pei(裴培)
 
@@ -13,9 +13,9 @@ On 15th August, TFBOYS held its fan meeting for the second anniversary, this con
 The costumes in the event were designed and made by a post-1990 designer, Cici Wong.
 NetEase Fashion interviewed this young and creative designer exclusively, and visited her "Gotcha Studio", to share the stories behind these costumes.
 
-![image](http://img3.cache.netease.com/lady/2015/8/16/201508160632055c3b4_550.jpg)
+![Image](http://img3.cache.netease.com/lady/2015/8/16/201508160632055c3b4_550.jpg)
 
-![image](http://img2.cache.netease.com/lady/2015/8/16/20150816063207f09ff_550.jpg)
+![Image](http://img2.cache.netease.com/lady/2015/8/16/20150816063207f09ff_550.jpg)
 
 **Discovery of TFBOYS' costumes**
 **Each one has tiny details you may not notice**
@@ -29,13 +29,13 @@ Through the costumes, it should be easy to tell who is cooler, who is more vigor
 In the current time of fans economy, the managing team also requires their personal items be added to the costumes.
 All in all, it is quite a difficult task.
 
-![image](http://img4.cache.netease.com/lady/2015/8/16/20150816063210db366_550.jpg)
+![Image](http://img4.cache.netease.com/lady/2015/8/16/20150816063210db366_550.jpg)
 
-![image](http://img4.cache.netease.com/lady/2015/8/16/2015081606321253417_550.jpg)
+![Image](http://img4.cache.netease.com/lady/2015/8/16/2015081606321253417_550.jpg)
 
-![image](http://img1.cache.netease.com/lady/2015/8/16/20150816063214968d1_550.jpg)
+![Image](http://img1.cache.netease.com/lady/2015/8/16/20150816063214968d1_550.jpg)
 
-![image](http://img2.cache.netease.com/lady/2015/8/16/20150816064057e07ba_550.jpg)
+![Image](http://img2.cache.netease.com/lady/2015/8/16/20150816064057e07ba_550.jpg)
 
 Cici said, the red jacket in the above photo was initially fully in red, but she sprayed with black to make it gradually changed, which wiped off the countrified feeling.
 The cute patterns on the following denim jacket are in fact fabrics of different styles, which set off the young and vigorous feeling.
@@ -46,23 +46,23 @@ As to the last costume, whom do you think was it made for?
 That's WANG Yuan, the circles (sounds "yuan" in Chinese) represent the name of "Yuan" for they are homophones.
 Cici said the team would like to put solid "tangyuan"(汤圆) on, but she refused, and made this distinctive smock.
 
-![image](http://img1.cache.netease.com/lady/2015/8/16/20150816063304355a4_550.jpg)
+![Image](http://img1.cache.netease.com/lady/2015/8/16/20150816063304355a4_550.jpg)
 
-![image](http://img2.cache.netease.com/lady/2015/8/16/2015081606330794f79_550.jpg)
+![Image](http://img2.cache.netease.com/lady/2015/8/16/2015081606330794f79_550.jpg)
 
-![image](http://img1.cache.netease.com/lady/2015/8/16/201508160633090d9b7_550.jpg)
+![Image](http://img1.cache.netease.com/lady/2015/8/16/201508160633090d9b7_550.jpg)
 
-![image](http://img5.cache.netease.com/lady/2015/8/16/20150816063312ed4d0_550.jpg)
+![Image](http://img5.cache.netease.com/lady/2015/8/16/20150816063312ed4d0_550.jpg)
 
-![image](http://img5.cache.netease.com/lady/2015/8/16/20150816063314a9372_550.jpg)
+![Image](http://img5.cache.netease.com/lady/2015/8/16/20150816063314a9372_550.jpg)
 
-![image](http://img5.cache.netease.com/lady/2015/8/16/20150816063316b01fb_550.jpg)
+![Image](http://img5.cache.netease.com/lady/2015/8/16/20150816063316b01fb_550.jpg)
 
-![image](http://img3.cache.netease.com/lady/2015/8/16/2015081606331978a9a_550.jpg)
+![Image](http://img3.cache.netease.com/lady/2015/8/16/2015081606331978a9a_550.jpg)
 
 And the above are the manuscripts for TFBOYS, can you connect the design with their costumes?
 
-![image](http://img2.cache.netease.com/lady/2015/8/16/2015081606341030d6b_550.jpg)
+![Image](http://img2.cache.netease.com/lady/2015/8/16/2015081606341030d6b_550.jpg)
 
 
 **Indie designers are hard to survive**
@@ -103,9 +103,9 @@ You don't have to order us, and we can get other orders.
 That is our style of behaviour.
 We believe in friendship, we made costumes without advanced deposit.
 
-![image](http://img1.cache.netease.com/lady/2015/8/16/2015081606413405b61_550.jpg)
+![Image](http://img1.cache.netease.com/lady/2015/8/16/2015081606413405b61_550.jpg)
 
-![image](http://img6.cache.netease.com/lady/2015/8/16/20150816064138735be_550.jpg)
+![Image](http://img6.cache.netease.com/lady/2015/8/16/20150816064138735be_550.jpg)
 
 
 **Two years in studio**
@@ -117,4 +117,4 @@ They appreciate our concept, and support our positioning of dealing in entertain
 Without their support, the studio and I cannot gain the result in two years.
 Ms. LUO and Ms. GE are young angel investors, their unique vision was admired by many magnates."
 
-[images]
+*[Images]*

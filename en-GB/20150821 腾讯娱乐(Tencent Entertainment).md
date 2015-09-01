@@ -3,16 +3,16 @@
 ## TFBOYS attended "Kaixue Di Yi Ke", Took selfies with anti-war heroes
 *["Kaixue Di Yi Ke", 开学第一课, literally: "First Lesson of the Term"]*
 
-![image](http://img1.gtimg.com/ent/pics/hv1/225/98/1907/124027890.jpg)  
+![Image](http://img1.gtimg.com/ent/pics/hv1/225/98/1907/124027890.jpg)  
 HUANG Zi-tao(黄子韬) singing the theme song "The First Lesson"(第一课)
 
-![image](http://img1.gtimg.com/ent/pics/hv1/241/98/1907/124027906.jpg)  
+![Image](http://img1.gtimg.com/ent/pics/hv1/241/98/1907/124027906.jpg)  
 Teenager delegate TFBOYS leading the recitation of "Manifesto of Self-improvement"
 
-![image](http://img1.gtimg.com/ent/pics/hv1/248/98/1907/124027913.jpg)  
+![Image](http://img1.gtimg.com/ent/pics/hv1/248/98/1907/124027913.jpg)  
 Teenager delegate TFBOYS singing
 
-![image](http://img1.gtimg.com/ent/pics/hv1/2/99/1907/124027922.jpg)  
+![Image](http://img1.gtimg.com/ent/pics/hv1/2/99/1907/124027922.jpg)  
 Emcee HE Jiong(何炅) playing games with children
 
 > Written by SHANG Ya-mei(商亚美)

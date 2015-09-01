@@ -3,7 +3,7 @@
 **TFBOYS YI Yang-qian-xi**
 ## Enter senior middle school in September, aim at Peking University
 
-![image](http://f2.xxcb.cn/depth/jiaodu/2015-08-26/73ca5009679f7b132b499cc33671f43d.jpg)  
+![Image](http://f2.xxcb.cn/depth/jiaodu/2015-08-26/73ca5009679f7b132b499cc33671f43d.jpg)  
 TFBOYS members: YI Yang-qian-xi(left), WANG Jun-kai, and WANG Yuan(right).
 
 As the dancer of TFBOYS, YI Yang-qian-xi is calm, reserved, and cool. He's good at Chinese calligraphy and school study, which entitled him as "xue ba"[学霸, one who's score ranks top in class or school].
@@ -30,7 +30,7 @@ The agency didn't want the school's name to be known, "the school is now their o
 
 As to the message, the teacher of the teaching office of Changjun Meixihu Middle School had no idea about it.
 
-![image](http://f2.xxcb.cn/depth/jiaodu/2015-08-26/dab7e8c90bb971a948c7cb616d3c3a65.jpg)  
+![Image](http://f2.xxcb.cn/depth/jiaodu/2015-08-26/dab7e8c90bb971a948c7cb616d3c3a65.jpg)  
 Before the entrance examination, YI Yang-qian-xi is taking extra lessons in a school in Huaihua.
 
 **About entrance examination**  
