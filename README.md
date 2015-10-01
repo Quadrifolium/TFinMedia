@@ -4,4 +4,4 @@ Translator: Quadrifolium ([Sina Weibo](http://weibo.com/u/5182556773/), [LOFTER]
 
 See [en-GB](/en-GB/) folder for English translations.
 
-See [zh-CH](/zh-CH/) folder for Chinese translations.
+See [zh-CN](/zh-CN/) folder for Chinese translations.
