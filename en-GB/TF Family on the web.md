@@ -53,6 +53,7 @@ Trainees:
 **On YouTube**
 
 [TF家族官方频道](https://www.youtube.com/channel/UC5k3BlaVrHN7jvdJF4sERMg) - TF Family  
+[TFBOYS official 官方頻道](https://www.youtube.com/user/OfficialTFBOYS) - TFBOYS  
 
 **On Facebook**
 
