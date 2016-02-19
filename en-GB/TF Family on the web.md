@@ -60,7 +60,7 @@ Trainees:
 
 **Blog**
 
-[TFBOYS组合_新浪微博](http://blog.sina.com.cn/u/1804549454) - TFBOYS on Sina Blog (inactive)  
+[TFBOYS组合_新浪博客](http://blog.sina.com.cn/u/1804549454) - TFBOYS on Sina Blog (inactive)  
 [TF家族-TFBOYS](http://user.qzone.qq.com/1772859020) - TF Family on Qzone (inactive)  
 
 ## Related accounts
