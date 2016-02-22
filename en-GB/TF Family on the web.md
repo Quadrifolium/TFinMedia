@@ -13,7 +13,9 @@ Note: Unofficial but confirmed accounts are not included.
 
 ## Official accounts
 
-**On Sina Weibo**:
+### On SNS
+
+**Sina Weibo**
 
 TF Family:  
 [TF家族的微博](http://weibo.com/tfentertainment) - TF Family  
@@ -39,27 +41,33 @@ Trainees:
 [TF家族新生-陈泗旭的微博](http://weibo.com/u/5780592127) - CHEN Si-xu (陈泗旭)  
 [TF家族新生-黄其淋的微博](http://weibo.com/u/5780931227) - HUANG Qi-lin (黄其淋)  
 
-**On Tencent Weibo**
+**Tencent Weibo**
 
 [TF家族的微博](http://t.qq.com/t_fent) - TF Family  
 [TFBOYS_ 王俊凯的微博](http://t.qq.com/tfwangjunkai) - TFBOYS WANG Jun-kai (王俊凯, Karry)  
 [TFBOYS_王源的微博](t.qq.com/tf-wangyuan) - TFBOYS WANG Yuan (王源, Roy)  
 [TFBOYS_易烊千玺的微博](http://t.qq.com/tfyiyang) - TFBOYS YI Yang-qian-xi (易烊千玺, Jackson)  
 
-**On Bilibili**
-
-[TF家族的个人空间](http://space.bilibili.com/3670216) - Videos of TF Family  
-
-**On YouTube**
-
-[TF家族官方频道](https://www.youtube.com/channel/UC5k3BlaVrHN7jvdJF4sERMg) - TF Family  
-[TFBOYS official 官方頻道](https://www.youtube.com/user/OfficialTFBOYS) - TFBOYS  
-
-**On Facebook**
+**Facebook**
 
 [TFBoys](https://www.facebook.com/TFBoys-311184039065926) - TFBOYS  
 
-**Blog**
+### On video sites
+
+**Youku/Tudou**
+
+[TF家族练习生的自频道](http://i.youku.com/u/UNDA1NTM0MDk2) - Videos of TF Family  
+
+**Bilibili**
+
+[TF家族的个人空间](http://space.bilibili.com/3670216) - Videos of TF Family  
+
+**YouTube**
+
+[TF家族官方频道](https://www.youtube.com/channel/UC5k3BlaVrHN7jvdJF4sERMg) - Videos of TF Family  
+[TFBOYS official 官方頻道](https://www.youtube.com/user/OfficialTFBOYS) - TFBOYS  
+
+### Blogs
 
 [TFBOYS组合_新浪博客](http://blog.sina.com.cn/u/1804549454) - TFBOYS on Sina Blog (inactive)  
 [TF家族-TFBOYS](http://user.qzone.qq.com/1772859020) - TF Family on Qzone (inactive)  
