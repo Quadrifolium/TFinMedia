@@ -45,7 +45,7 @@ Trainees:
 
 [TF家族的微博](http://t.qq.com/t_fent) - TF Family  
 [TFBOYS_ 王俊凯的微博](http://t.qq.com/tfwangjunkai) - TFBOYS WANG Jun-kai (王俊凯, Karry)  
-[TFBOYS_王源的微博](t.qq.com/tf-wangyuan) - TFBOYS WANG Yuan (王源, Roy)  
+[TFBOYS_王源的微博](http://t.qq.com/tf-wangyuan) - TFBOYS WANG Yuan (王源, Roy)  
 [TFBOYS_易烊千玺的微博](http://t.qq.com/tfyiyang) - TFBOYS YI Yang-qian-xi (易烊千玺, Jackson)  
 
 **Facebook**
