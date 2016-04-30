@@ -40,6 +40,8 @@ Trainees:
 [TF家族新生-黄宇航的微博](http://weibo.com/u/5781316651) - HUANG Yu-hang (黄宇航)  
 [TF家族新生-陈泗旭的微博](http://weibo.com/u/5780592127) - CHEN Si-xu (陈泗旭)  
 [TF家族新生-黄其淋的微博](http://weibo.com/u/5780931227) - HUANG Qi-lin (黄其淋)  
+[TF家族新生-代昊林的微博](http://weibo.com/u/5904171406) - DAI Hao-lin (代昊林)  
+[TF家族练习生-贺峻霖的微博](http://weibo.com/u/5902696506) - HE Jun-lin (贺峻霖)  
 
 **Tencent Weibo**
 
