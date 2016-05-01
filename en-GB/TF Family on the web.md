@@ -42,11 +42,12 @@ Trainees:
 [TF家族新生-黄其淋的微博](http://weibo.com/u/5780931227) - HUANG Qi-lin (黄其淋)  
 [TF家族新生-代昊林的微博](http://weibo.com/u/5904171406) - DAI Hao-lin (代昊林)  
 [TF家族练习生-贺峻霖的微博](http://weibo.com/u/5902696506) - HE Jun-lin (贺峻霖)  
+[TF新生-张真源的微博](http://weibo.com/u/5908064369) - ZHANG Zhen-yuan (张真源)  
 
 **Tencent Weibo**
 
 [TF家族的微博](http://t.qq.com/t_fent) - TF Family  
-[TFBOYS_ 王俊凯的微博](http://t.qq.com/tfwangjunkai) - TFBOYS WANG Jun-kai (王俊凯, Karry)  
+[TFBOYS_王俊凯的微博](http://t.qq.com/tfwangjunkai) - TFBOYS WANG Jun-kai (王俊凯, Karry)  
 [TFBOYS_王源的微博](http://t.qq.com/tf-wangyuan) - TFBOYS WANG Yuan (王源, Roy)  
 [TFBOYS_易烊千玺的微博](http://t.qq.com/tfyiyang) - TFBOYS YI Yang-qian-xi (易烊千玺, Jackson)  
 
