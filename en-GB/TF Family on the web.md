@@ -43,6 +43,7 @@ Trainees:
 [TF家族新生-代昊林的微博](http://weibo.com/u/5904171406) - DAI Hao-lin (代昊林)  
 [TF家族练习生-贺峻霖的微博](http://weibo.com/u/5902696506) - HE Jun-lin (贺峻霖)  
 [TF新生-张真源的微博](http://weibo.com/u/5908064369) - ZHANG Zhen-yuan (张真源)  
+[TF新生-严浩翔的微博](http://weibo.com/u/5908286348) - YAN Hao-xiang (严浩翔)  
 
 **Tencent Weibo**
 
