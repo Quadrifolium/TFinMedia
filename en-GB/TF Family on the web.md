@@ -44,6 +44,8 @@ Trainees:
 [TF家族练习生-贺峻霖的微博](http://weibo.com/u/5902696506) - HE Jun-lin (贺峻霖)  
 [TF新生-张真源的微博](http://weibo.com/u/5908064369) - ZHANG Zhen-yuan (张真源)  
 [TF新生-严浩翔的微博](http://weibo.com/u/5908286348) - YAN Hao-xiang (严浩翔)  
+[TF家族练习生-潘政霖的微博](http://weibo.com/u/5908055509) - PAN Zheng-lin (潘政霖)  
+[TF家族练习生-曹峻玮的微博](http://weibo.com/u/5904543530) - CAO Jun-wei (曹峻玮)  
 
 **Tencent Weibo**
 
