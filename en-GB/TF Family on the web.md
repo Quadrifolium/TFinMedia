@@ -24,7 +24,7 @@ TF Family:
 [TFBOYS组合周边店铺](http://weibo.com/tfshop) - Products of TFBOYS and trainees  
 
 TFBOYS:  
-[TFBOYS的微博](http://weibo.com/tfent) - TFBOYS (formerly of TF Family)  
+[TFBOYS的微博](http://weibo.com/tfent) - TFBOYS (formerly of TF Family, before 2013-05-29)  
 [TFBOYS_FanClub的微博](http://weibo.com/tfboysfc) - TFBOYS Fan Club  
 [TFBOYS-王俊凯的微博](http://weibo.com/tfwangjunkai) - TFBOYS WANG Jun-kai (王俊凯, Karry)  
 [TFBOYS-王源的微博](http://weibo.com/tfwangyuan) - TFBOYS WANG Yuan (王源, Roy)  
@@ -47,6 +47,7 @@ Trainees:
 [TF家族练习生-潘政霖的微博](http://weibo.com/u/5908055509) - PAN Zheng-lin (潘政霖)  
 [TF家族练习生-曹峻玮的微博](http://weibo.com/u/5904543530) - CAO Jun-wei (曹峻玮)  
 [TF家族练习生-殷涌智的微博](http://weibo.com/u/5903024282) - YIN Yong-zhi (殷涌智)  
+[刘俊昊JunHo的微博](http://weibo.com/u/5976866607) - LIU Jun-hao (刘俊昊, JunHo)  
 
 **Tencent Weibo**
 
