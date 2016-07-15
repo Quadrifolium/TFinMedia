@@ -33,7 +33,7 @@ TFBOYS:
 Trainees:  
 (Ordered by the time of the first post)  
 [TF乐队-王译锋的微博](http://weibo.com/tfwangyifeng) - WANG Yi-feng (王译锋) (inactive)  
-[TF家族-刘志宏的微博](http://weibo.com/tfliuzhihong) - LIU Zhi-hong (刘志宏)  
+[TF家族-刘志宏的微博](http://weibo.com/tfliuzhihong) - LIU Zhi-hong (刘志宏) (terminated)  
 [TF家族-倪子鱼的微博](http://weibo.com/tfniziyu) - NI Zi-yu (倪子鱼) (inactive)  
 [TF家族新生-丁程鑫的微博](http://weibo.com/u/5781292544) - DING Cheng-xin (丁程鑫)  
 [TF家族新生-敖子逸的微博](http://weibo.com/u/5781311106) - AO Zi-yi (敖子逸)  
