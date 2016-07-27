@@ -18,13 +18,14 @@ Note: Unofficial but confirmed accounts are not included.
 **Sina Weibo**
 
 TF Family:  
-[TF家族的微博](http://weibo.com/tfentertainment) - TF Family  
-[TF家族成都分部的微博](http://weibo.com/u/5476949164) - TF Family Chengdu branch  
-[TF家族练习生官博的微博](http://weibo.com/u/3899740210) - Trainees of TF Family  
+(Ordered by the time of the first post)  
+[峰峻文化的微博](http://weibo.com/tfentertainment) - Time Fengjun (formerly of TF Family, till 2016-07-17)  
 [TFBOYS组合周边店铺](http://weibo.com/tfshop) - Products of TFBOYS and trainees  
+[TF家族成都分部的微博](http://weibo.com/u/5476949164) - TF Family Chengdu branch  
+[TF家族的微博](http://weibo.com/u/3899740210) - TF Family (formerly of trainees of TF Family, till 2016-07-17)  
 
 TFBOYS:  
-[TFBOYS的微博](http://weibo.com/tfent) - TFBOYS (formerly of TF Family, before 2013-05-29)  
+[TFBOYS组合的微博](http://weibo.com/tfent) - TFBOYS (formerly of TF Family, till 2013-05-28)  
 [TFBOYS_FanClub的微博](http://weibo.com/tfboysfc) - TFBOYS Fan Club  
 [TFBOYS-王俊凯的微博](http://weibo.com/tfwangjunkai) - TFBOYS WANG Jun-kai (王俊凯, Karry)  
 [TFBOYS-王源的微博](http://weibo.com/tfwangyuan) - TFBOYS WANG Yuan (王源, Roy)  
