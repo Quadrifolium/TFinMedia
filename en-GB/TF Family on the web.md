@@ -23,6 +23,7 @@ TF Family:
 [TFBOYS组合周边店铺](http://weibo.com/tfshop) - Products of TFBOYS and trainees  
 [TF家族成都分部的微博](http://weibo.com/u/5476949164) - TF Family Chengdu branch  
 [TF家族的微博](http://weibo.com/u/3899740210) - TF Family (formerly of trainees of TF Family, till 2016-07-17)  
+[时代峰峻影视部官博的微博](http://weibo.com/u/5994653615) - Time Fengjun Film and Television Department  
 
 TFBOYS:  
 [TFBOYS组合的微博](http://weibo.com/tfent) - TFBOYS (formerly of TF Family, till 2013-05-28)  
